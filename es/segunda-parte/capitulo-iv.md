@@ -1,0 +1,283 @@
+ CAPITULO IV
+
+ En donde se espera, y se espera, conversando con una rama
+ acacia, y con unos cuantos floridos bejucos de bellísima.
+
+
+H ace y a m á s de una semana que estamos en San Nicolás.
+ Esta casa, vieja casa de hacienda de los Alonso, hecha quizá por los propios
+esclavos servidores de la familia que también se llamarían «Alonso» como sus
+amos; esta casa, ancha de paredes, desnuda de vigas y altísima de techos, me
+ha recibido con mucho cariño y mucha melancolía. Sabe sin duda que soy el
+último retoño de sus antiguos dueños, y me guarda en ella con veneración y
+con lástima como se guarda a uno de esos pobres vástagos destronados que
+vegetan tristemente en algún oscuro rincón de sus perdidos dominios.
+ Como los vástagos destronados tengo en San Nicolás mi solitario rincón,
+y es este cuarto que me han adjudicado para mí sola. Ya está lleno, tan lleno,
+y tan rebosante de mí misma que lo quiero mucho. Lo quiero además porque
+se parece a mi cuarto de Caracas, y porque tiene reja sombreada y florecida
+como la tiene aquél. Pero sucede que allá, en Caracas, los azahares que brotan
+en los naranjos de mi reja son propiedad de los naranjos, y aquí no, aquí las
+ flores que brotan en la rama de acacia que viene a sombrear mi reja, no son
+propiedad de la mata de acacia, sino que pertenecen a una bellísima que un
+poco más allá de la ventana ha trepado por la pared, se ha agarrado a la acacia,
+se ha metido por ella, y la tiene toda agobiada y entretejida de bejucos y de
+flores. Y la acacia, en lugar de protestar contra semejante abuso, no, se
+ensancha, se explaya muy satisfecha como una sombrilla inmensa, parece estar
+muy contenta de tener encima todas las flores que le va poniendo la bellísima,
+y en una de sus ramas me las ofrece y me las trae aquí a los propios barrotes
+de la ventana. Cuando yo me despierto todas las mañanas le digo a la rama:
+ «¡Muchísimas gracias! Si no fuera por ti, me daría de frente en los ojos
+ese resplandor vivísimo del cielo; tú me lo quitas, eres muy amable, y tus
+flores fingidas como las que yo me pongo algunas veces en mi sombrero, te
+quedan tan bien como me quedan a mí las mías; no te las quites nunca, ni
+se te ocurra jamás pelear con la bellísima aunque te moleste un poco».
+ Bien, destronada y todo, yo sería feliz en este oscuro rincón de mis perdi­
+dos dominios; sería feliz conversando con la florida rama, o balanceándome
+en la hamaca que atraviesa mi cuarto de extremo a extremo; si no fuera porque
+en mi espíritu, tengo también yo mi enredadera como la acacia tiene la suya.
+Sólo que esta enredadera mía me oprime, me ahoga, no me deja vivir, y toda­
+vía no me ha dado ni una siquiera de esos millones de flores que la bellísima
+le ha regalado a la acacia.
+ ¡Ah! ¡mi enredadera es sólo de bejucos y esta es la razón por la cual hasta
+el presente no ha hecho sino oprimirme con sus mil tentáculos! Sí; me opri­
+me; me agobia, me estrecha, como si quisiera verme muerta entre sus dedos
+larguísimos y se llama . . . se llama . . . ¡la ansiedad de la espera!
+ Desde aquella divina noche del brindis al amor y del «Cielito lindo» no
+ha vuelto a ver a Gabriel. Cuántas veces he pensado con desesperación:
+«¿Por qué no quise quedarme en el piano como Gabriel decía? ¿Por qué?
+¿Por qué? . . .». Y estas interrogaciones contra mí misma, son tan agudas y
+tan punzantes como los remordimientos; y son también tenaces y perseveran­
+tes como son ellos . . . Y es que al día siguiente de la noche del brindis al
+amor, llamaron a Gabriel urgentemente fuera de Caracas, y tuvo que irse.
+Luego fuimos nosotros quienes nos vinimos a la hacienda y por consiguiente
+no le he visto más ni he vuelto a saber de é l . . . es decir, sí, sí he sabido,
+pero sólo indirectamente por medio de Mercedes.
+ Hace algunos días Mercedes me llamó por el teléfono y me dijo:
+ «Gabriel estuvo en Caracas unas cuantas horas; vino a verme y sintió
+muchísimo no encontrarte aquí. Me dio para que yo te lo remitiera, un
+paquete de libros que te había ofrecido y me dijo que al regresar de nuevo a
+Caracas se pondría de acuerdo con Pancho para hacerte una visita a San Nico­
+lás. Me pareció muy contento. Creo que sus asuntos andan muy bien. Estu­
+vimos los dos haciendo proyectos, y, naturalmente, al hacerlos, fue preciso
+hablar mucho, pero muchísimo de ti» . . .
+ Aquel día, no bien dejé el teléfono, con las palabras de Mercedes cantán­
+ dome en el alma, vine aquí, me acosté en la hamaca, y comencé a balancearme
+muy suavemente como es mi ensoñadora y queridísima costumbre. Recuerdo
+que entonces, bajo el dulce vaivén de la hamaca, este cuarto mío, este soli­
+tario rincón de mis perdidos dominios, comenzó poco a poco a cubrirse de
+ensueños, a llenarse de visiones, a poblarse de blancas y florecidas siluetas , . .
+Era como el sueño de Dante con Beatriz, o era más bien como si al impulso
+de un capricho, la bellísima de la reja, hubiera atravesado de pronto por los
+barrotes, y se hubiese puesto a tejer, a acumular, a enlazar guirnaldas, por las
+paredes, por el suelo, por los rincones, por el techo, hasta hacer un río, un
+lago, y una catarata de florecitas menudas y rosadas.
+ ¡Cómo, al conjuro de las palabras de Mercedes saboreadas sí, en el propicio
+vaivén de la hamaca, este cuarto desnudo de paredes y desnudo de techos,
+comenzó a poblarse lentamente, hasta adornarse de arriba abajo como para
+el derroche de una fiesta!
+ Mecida siempre por el blando flotar de la hamaca, luego de contemplar un
+largo rato aquella muchedumbre de rosados ensueños, empecé al fin a con­
+cretar en ideas todas mis suaves visiones, y poco más, poco menos, sin dejar
+de balancearme, comencé a pensar así:
+ «Dice Mercedes que Gabriel le entregó un paquete de libros para que ella
+me los remitiera. Bien, hay que enviar a buscar ese paquete, pronto, pronto,
+prontísimo, lo más pronto que yo pueda, ¿y cuándo es lo más pronto? . . .
+ ¡pues lo más pronto es mañana muy temprano con el sirviente que va todos
+los días a hacer las compras a Caracas! . . . El paquete llegará pues mañana a
+las diez y media, o quizás, quizás, no llegue sino hasta las once . . . bien, media
+hora más o menos no tiene importancia, a veces parece larguísima . . . pero,
+en fin, pasará . . . pasará la media hora, llegarán las once y con las once a más
+tardar llegará el sirviente . . . yo saldré a esperarle, tomaré el paquete, con
+el paquete en las manos me vendré a mi cuarto, echaré la llave, me sentaré
+en la hamaca, y entonces, con las manos trémulas y frías, lo abriré poco a
+poco . . . lo abriré temblando de emoción porque ya lo sé de antemano, sin
+duda ninguna entre las hojas de uno de los libros habrá una sorpresa . . .
+ ¡sí! . . . ¡sí! . . . entre las hojas de algún libro me aguardará en acecho la sor­
+presa de una carta! . . . Ya la estoy viendo . . . ¡ah! . . . ya la veo . . . será un
+sobre blanco, grande, inmaculado . . . será un gran sobre silencioso que guar­
+dará en sus entrañas el tesoro de la carta . . . Pero quizás no, quizás en el
+sobre venga escrito con aquella letra de Gabriel, que sólo he visto una vez,
+y que son como patitas de moscas que se agarran una de otra:
+ «Señorita María Eugenia Alonso. Hacienda San Nicolás».
+ Bien . . . esté escrito o esté en blanco, es el caso que lo rasgaré con trabajo,
+porque las manos las tendré muy torpes, y porque estarán mucho más frías y
+mucho más temblorosas de lo que estuvieron al abrir el paquete. . . por fin, des­
+pués de batallar un rato, acaberé por rasgar el sobre, caerán de su seno algunos
+doblados pliegos, y entonces . . . ¡ah! entonces, me sentiré rica, me creeré
+millonaria, porque tendré mi regazo lleno, rebosante, cuajado de ejércitos y
+ de legiones de patas de mosca! . . . ¡Ah! Y cómo desfilarán por mis ojos, mil
+y mil veces esas legiones! . . . Sí, aquí mismo, en esta propia hamaca leeré
+por primera vez los pliegos uno tras otro, y luego, uno tras otro volveré a
+leerlos, dos, tres, y cuatro veces para recoger bien todas, toditas esas cosas que
+se escapan a la emoción de la primera lectura. Después, cuando ya tenga la
+seguridad de que no se me ha escapado nada, seguiré leyendo mi carta por el
+solo gusto de leerla como se leen las oraciones y los versos que ya se saben
+de memoria . . . Cuando me haya cansado de leerla en voz baja, la leeré en
+alta voz, para que la escuche todo el cuarto, y cuando ya el cuarto la conozca y
+la haya escuchado bien, me iré a leérsela al campo entero; sí; la esconderé en
+mi seno donde nadie la vea, y con ella escondida, iré a leérsela a la acequia
+grande, allá bajo el ceibo, donde el agua forma aquel alboroto de murmullos
+y de espuma sólo porque se tropieza con las puntiagudas lajas que cierran la
+compuerta; y cuando la haya oído el agua de la acequia, me iré a leérsela a
+aquel inmenso bucare que es como un gigante que está preso por los solda-
+ditos del cafetal, en lo más escondido, donde nunca, nunca, pasa nadie; y
+cuando haya terminado de leérsela al bucare, acribillada por la nube de mosqui­
+tos, bajaré hasta los sauces llorones del estanque, se la leeré a los sauces, y
+la oirán las blancas piedritas que hay en el fondo del agua, la oirá la hierba
+menuda que crece en el suelo junto a la orilla y la oirán también los patos,
+mientras vayan surcando el silencio del estanque. Después, ya en la tarde,
+cuando sea el crepúsculo y haya caído enteramente el sol, me iré caminando
+por el atajo pedregoso, llegaré a las ruinosas paredes del trapiche viejo, y allí,
+ sentada en un escombro la leeré muy alto para que mi voz alcance hasta la
+copa de aquellos dos larguísimos chaguaramos, que crecieron tan juntos, tan
+ juntos, que son como un idilio en la melancolía del trapiche viejo; y si acaso
+ la noche me somprende sentada bajo el idilio de los chaguaramos, abriré la
+ carta sobre mis rodillas, estaré inmóvil durante un largo rato, y entonces, los
+cocuyos, que como Vírgenes Prudentes son los únicos que llevan siempre su
+lámpara encendida para el amor de la noche, alumbrarán un instante mi carta,
+la inundarán de reflejos y la leerán con su ojitos de luz mientras pasen volando
+por sobre mi cabeza . . . Después, sólo después de que la haya oído el agua
+ de la acequia grande, y el bucare del cafetal, y los sauces llorones, y las piedri­
+ tas del fondo del estanque, y la hierba menuda, y los patos, y los dos largos
+ chaguaramos del trapiche viejo y todos los cocuyos que pasen volando sobre
+ mi cabeza, sólo después, cuando ya esté cansada de leérsela al campo entero,
+ volveré a la casa, en el camino me sentiré agobiada por el enorme peso de mi
+ alegría, y entonces, si al mirarme entrar rendida y extenuada, Abuelita me
+ pregunta: «qué has hecho todo el día, María Eugenia, llevando sol por esos
+ campos?», yo contestaré para que Abuelita ni siquiera sospeche la existencia
+ de mi carta: «He estado cazando mariposas para enviárselas a una de mis anti­
+ guas maestras de París que tiene colección; y en cuanto al sol, no te preocu­
+ pes, Abuelita, porque me puse mi sombrero grande de paja de arroz» . . .
+ «Pero luego, al siguiente día, vendrá lo mejor, lo más grande, lo más intenso
+ de todo, porque yo también escribiré mi carta de respuesta . . . ¡ah! ¡la res­
+puesta! ¡la respuesta! . . . ¡Cómo, mi alma toda se cambiará entonces en
+arroyo para ir corriendo, corriendo, como un río sobre el inmaculado cauce
+de la carta! . . . ¡Y qué sorpresa para Gabriel cuando la lea; sí ¡qué sorpresa
+y qué admiración de amor! . . .».
+ Así, más o menos pensaba el otro día, mientras me balanceaba en la hama­
+ca, y mientras en mi alma y en mis oídos parecían estar aún cantando todas
+sus canciones las palabras de Mercedes oídas por el teléfono. Pero llegó el
+siguiente día; llegaron las once de la mañana; llegó el sirviente que viene de
+Caracas; llegó el paquete de libros; pero la carta, la carta presentida y espe­
+rada con tantos festejos de amor fue la única que no llegó . . . En vano registré
+libro por libro, en vano fui buscando hoja por hoja; no había sobre blanco,
+no había sobre escrito, no había nada, nada! . . . Los libros remitidos eran las
+obras de Shakespeare, lujosamente encuadernadas en cinco tomos de tafilete
+con los cantos dorados. En la primera página de cada tomo, engolillado y
+puntiagudo de barba, según la moda del siglo dieciséis, aparecía en un gra­
+bado el retrato del autor. Como la página del grabado era la más gruesa en
+los libros, y como estaba además junto a la tapa, después de ir buscando
+tomo por tomo, sucedió al fin, que en vez de tener sobre mis rodillas la
+carta de Gabriel tal cual lo había soñado en el lento transcurrir de todo un
+día, en lugar de la carta, bajo el silencio de mi decepción tan sólo se amonto­
+naron los cinco flamantes retratos de Shakespeare. Triste y decaída como
+estaba, me quedé contemplando mucho rato en la primera hoja de uno de los
+tomos aquella fina cabeza que surgía alargada y satírica por entre los cañones
+de la rizada golilla . . . la estuve mirando, mirando, muy fijamente, y porque
+al fin, la juzgué intrusa, importuna y como asomándose indiscreta al espec­
+táculo de mi decepción, la increpé diciendo:
+ ¿Y qué me importas tú, Shakespeare? ¡Todas tus obras juntas, toda
+tu gloria, y toda tu inmortalidad, las cambiaría yo mil y mil veces por una
+sola de aquellas patas de mosca que escribe Gabriel. Ahora que nadie me
+oye, te confieso que tu teatro más que divertirme, me aburre. Dicen de ti
+que fuiste un impostor; que no eres tú quien escribió tus obras, y yo lo creo,
+porque a mí también me has engañado, has querido sustituir a Gabriel, y
+ahora pareces burlarte de mi tristeza. ¡Pues bien, afirmo con tus detractores
+que eres un impostor, y como tu presencia en lugar de agradarme me molesta,
+cierro uno por uno tus cinco dorados y lujosos libros para no verte más! . . .
+ Pero hay que decir en honor de la verdad, que esta larga historia de la
+carta con su final de desilusión, fue toda ella de principio a fin obra única y
+purísima de mi fantasía. Ni Mercedes me dijo nunca que Gabriel vendría, ni
+Gabriel me lo afirmó jamás, ¿y cómo había de afirmarlo si aquella última
+noche en casa de Mercedes nos hallábamos tan lejos de creer que nuestra
+despedida de entonces, iba a ser la despedida de tantísimos d ía s?........... ¡ah! . . .
+pero hay algo que Mercedes sí afirmó rotundamente por teléfono; algo que
+sucederá porque es cierto y es evidente. Mercedes dijo «cuando vuelva a
+ Caracas se pondrá de acuerdo con Pancho, para hacerte una visita a San Nico­
+lás» . . . Es, pues, seguro, positivamente seguro y sin asomos de fantasía que
+Gabriel vendrá a verme.. . .
+ Lo espero todos los días, desde el amanecer hasta la noche; y esta espera,
+y esta esperanza, es como el agua en que bebe mi espíritu y es al mismo tiem­
+po aquella enredadera que sin haber florecido todavía me tortura, me oprime
+y me abrasa el corazón.
+ ¡Pero Gabriel vendrá! ¡ah! sí, Gabriel vendrá y entonces al mirarle llegar
+desde lejos, la estéril enredadera que me oprime el corazón se cubrirá mila­
+grosamente con millones de flores. ¿Vendrá por la mañana Gabriel? ¿Ven­
+drá en la tarde? Si viene en la mañana, me vestiré toda de blanco, me pondré
+mi gran sombrero de paja de arroz, lo ataré con un tul bajo mi barba, al
+estilo Directorio, tomaré al descuido las ramas floridas de alguna mata silves­
+tre, y con mi larga sombrilla en la mano, iré hacia él como va Flora hacia su
+amante en el primer acto de la «Tosca». Si viene en la tarde, me vestiré de
+negro, atisbaré su llegada detrás de mi ventana; mirándole cruzar allá junto
+a los mangos, saldré a su encuentro caminando poco a poco, al pasar por la
+soleada senda abriré mi blanca sombrilla de encaje y la blanca sombrilla abier­
+ta sobre mi silueta oscura simbolizará entonces la flor de mi alegría.
+ ¿Pero vendrá? . . . ¿vendrá de veras Gabriel? ¡Ah! ¡La duda me asalta
+a veces como un ladrón que quisiera robarme mi tesoro de ilusiones! . . .
+ Y esa duda tiene su fundamento y su origen en la siguiente escena ocurrida
+hace tres días; escena trivial y torturante que trato a todas horas de borrar
+de mi memoria y que mi memoria retiene siempre con la insistencia de una
+lámpara encendida que perturbara mi sueño:
+ Sería cosa de las nueve de la noche. Reunidos en el comedor nos hallába­
+mos todos los de la casa. Habíamos tomado ya los postres y el café. De afuera
+llegaban nítidamente las nocturnas voces del campo; croar de las ranas,
+chirriar de los grillos, y la comida parecía languidecer indefinidamente en una
+aburrida sobremesa. Yo estaba como ausente por la lejanía de mis preocupa­
+ciones. Fijos los ojos dentro del marco de la ventana abierta, miraba el negro
+cuadro de la noche majestuosa y palpitante de luceros, cuando alguien nombró
+a Gabriel. No sé cómo vino la conversación; pero recuerdo perfectamente
+que María Antonia, no bien oyó su nombre, aprovechó al punto esta ocasión
+de serme desagradable sin faltar a las apariencias y acompañando las palabras
+con el brillo deslumbrador de sus ojos negros, a modo de noticia lanzó esto:
+ Me han contado hoy por teléfono que en Caracas se habla mucho del
+matrimonio de Gabriel Olmedo con la hija mayor de Monasterios. Si resulta
+ser cierto, se casa muy bien. Es una muchacha muy rica, el padre es todopo­
+deroso en el Gobierno, y además ella es muy bonita. ¡Tiene unos ojos
+preciosos!
+ ¡Sí! ¡Son unos ojos bellos afirmó mi prima rebosante de admiración.
+ ¡Sí! ¡Bellos! repitió en el mismo tono casi todo el arreo, como diría
+tío Pancho.
+ Yo no pude contenerme y exclamé:
+ No sé cómo serán los ojos, pero tengo noticias de que todo el resto de
+la persona es una ridiculez. Y copiando textualmente el juicio de Mercedes
+añadí -: ¡Anda toda fagotée! ¡Ah! Gabriel Olmedo, que es tan exquisito, tan
+raffiné , tan gourmet como quien dice, no se casará jamás con eso.
+ María Antonia, que por el torrente de adjetivos franceses debió adivinar
+cuál era mi fuente de información, iba a replicar ya, agresiva y chocadísima,
+pero en el mismo instante, alguien derramó una copa de vino sobre el mantel,
+el incidente cambió el rumbo de la conversación, y nada más se dijo sobre el
+particular.
+ Pero las anteriores palabras grabadas en mi espíritu, me torturan ahora
+de noche y de día. Ellas son el ladrón que quiere robarme mi tesoro de ilusio­
+nes; son la lámpara encendida que perturba mi sueño; son un puñal que llevo
+a todas horas clavado en mi esperanza y son ellas, ellas, quienes les han ense­
+ñado a mis ojos este horrible demonio de los celos, que mis ojos hasta ahora
+no habían mirado nunca.
+ ¡Ah! Si yo pudiera hablar con Mercedes, allá en la gran intimidad de su
+fingido Oriente, ella entonces, con su vista penetrante de astuto marino que
+conoce los secretos de todos los horizontes, me diría . . . ¡me diría! . . .
+ Pero no puedo hablar con ella ni con nadie, y esta duda va creciendo enor­
+memente en mi secreto de amor y ya me agobia . . . ¡quién me ayudará a
+llevarla! . . .
+ A l terminar de escribir estas últimas palabras he levantado un instante los
+ojos y he visto la rama de acacia que sacudida por la brisa, parece hacerme
+señas asomada a los barrotes de la ventana. Sus hojas se entreabren y se agitan
+como los dedos en el saludo de las manos queridas y ha dejado caer por el
+suelo el regalo de sus florecitas rosadas. La he visto, la he visto mucho rato,
+hacia arriba los ojos implorantes, en una mirada honda, llena de fe y de espe­
+ranza como se miran esas venerables imágenes milagrosas de los Santos Patro­
+nos, y con sólo los ojos implorantes desde el fondo de mi alma, le he rogado
+así:
+ ¡Oh! vieja y generosa acacia que me quitas el sol y que te adornas noche
+y día, con las flores que te pone la bellísima; tú que conoces esta maldad de
+los bejucos, que se enroscan al corazón como las sierpes del remordimiento;
+tú que has llevado con nazarena paciencia la cruz de tantos abrazos espinosos
+y estériles; tú que eres buena porque tiendes la mano compasiva a los desva­
+lidos que te imploran, y como Santa Isabel de Hungría, tienes después tu
+caridad convertida en flores sobre el regazo; tú, que derramas maternalmente
+el cariño de tu sombra sobre los que te aman y los que te aborecen; tú que
+todo lo sabes porque tienes la experiencia de muchas primaveras; dime,
+vieja y generosa acacia: ¿florecerá algún día mi enredadera como floreció tu
+bellísima? . . .
+
