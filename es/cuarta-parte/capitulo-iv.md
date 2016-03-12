@@ -1,10 +1,11 @@
- CAPITULO IV
+## CAPITULO IV
 
- En la noche del miércoles al jueves
+En la noche del miércoles al jueves
 
 
-A h ora pa saque le tengo miedo a Gabriel. ..
- Sí: ¡le tengo mucho miedo! Y es que hoy, durante las primeras horas de
+Ahora pa saque le tengo miedo a Gabriel...
+
+Sí: ¡le tengo mucho miedo! Y es que hoy, durante las primeras horas de
 la tarde, mientras estábamos en el cuarto de tío Pancho, sus ojos brillantí­
 simos no han hecho más que perseguirme revolando sobre mí obstinada­
 mente, con la obsesión vertiginosa y negra con que revuelan los murciéla­
