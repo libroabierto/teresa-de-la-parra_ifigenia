@@ -1,37 +1,11 @@
- CAPITULO I
+ *CAPÍTULO I*
 
  Un lunes en la madrugada
 
-
-A c a b a n d e d a r las dos de la mañana . . . Y estas dos campanadas al sonar,
-como si fueran dos quejidos del silencio, se han metido de pronto en mis oídos,
-me han llamado con dos golpes, y dentro del alma, me han despertado el
-miedo . . .
- Tengo miedo . . . S í . . . escribo por distraer el miedo ...
- Fue el reloj viejo y estropeado del comedor el que dio las dos . . . ¿Serán
-realmente las dos? Ahora el reloj sigue haciendo como antes: tic, tac . . .
-tic, tac .. . tic, tac . . .
- Las campanadas de los relojes en la noche son las voces del silencio que
-se queja . . . y el tic-tac de los relojes en la noche son los pasos . . . ¡ah! los
-pasos de la muerte . . . ¡no; no, no! . . . son los pasos del silencio que cami­
-na .. . ¡sí! . . . los pasos del silencio . . . ¡Y qué despacio, y qué lento y qué
-largo, Dios mío, camina el silencio por la noche! . . . Sobre todo cuando la
-noche es tan negra y tan callada como esta noche. Es tan negra y tan callada,
-que hace apenas un instante que por ver algo de luz que no fuese la luz de
-esta llama que baila y baila como una bailarina loca sobre el pedestal angosto
-de la vela . . . hace un instante, por ver otra luz que no fuese la luz de esta
- llama loca, me levanté de mi silla y abrí uno de los postigos de la ventana;
-pero como en esta casa tan vieja y tan pobre todo se queja, el postigo, al
-abrirlo, se quejó y como yo me asusté del quejido, y como en el cielo no hay
-ni siquiera una estrella, el postigo se ha quedado entreabierto, y es ahora,
-en el marco de la ventana blanca, un boquete negro, negro, por donde pasa
-un misterio tan negro y tan frío, que la llama ahora sobre el pedestal angosto
-de la vela se tuerce y se retuerce como si le dolieran las entrañas . . . Y ese
-misterio del postigo a mí también me está tocando la cara y me toca las manos,
-mientras las manos andan sobre el papel, junto a la pluma. Es un misterio
-negro, y húmedo, y frío . . . s í . . . ¡Es como el misterio de los ojos muertos!
-Porque hay veces que en los rostros helados, bajo los párpados blancos, los
-ojos negros se quedan entreabiertos . . . a s í. . . como está ese postigo . . .
+Acaban de dar las dos de la mañana... Y estas dos campanadas al sonar, como si fueran dos quejidos del silencio, se han metido de pronto en mis oídos, me han llamado con dos golpes, y dentro del alma, me han despertado el miedo...
+Tengo miedo... Sí... escribo por distraer el miedo...
+Fue el reloj viejo y estropeado del comedor el que dio las dos... ¿Serán realmente las dos? Ahora el reloj sigue haciendo como antes: tic, tac... tic, tac... tic, tac...
+Las campanadas de los relojes en la noche son las voces del silencio que se queja... y el tic-tac de los relojes en la noche son los pasos... ¡ah! los pasos de la muerte... ¡no, no, no!... son los pasos del silencio que camina... ¡sí!... los pasos del silencio... ¡Y qué despacio, y qué lento y qué largo, Dios mío, camina el silencio por la noche!... Sobre todo cuando la noche es tan negra y tan callada como esta noche. Es tan negra y tan callada, que hace apenas un instante que por ver algo de luz que no fuese la luz de esta llama que baila y baila como una bailarina loca sobre el pedestal angosto de la vela... hace un instante, por ver otra luz que no fuese la luz de esta llama loca, me levanté de mi silla y abrí uno de los postigos de la ventana; pero como en esta casa tan vieja y tan pobre todo se queja, el postigo, al abrirlo, se quejó y como yo me asusté del quejido, y como en el cielo no hay ni siquiera una estrella, el postigo se ha quedado entreabierto, y es ahora, en el marco de la ventana blanca, un boquete negro, negro, por donde pasa un misterio tan negro y tan frío, que la llama ahora sobre el pedestal angosto de la vela se tuerce y se retuerce como si le dolieran las entrañas... Y ese misterio del postigo a mí también me está tocando la cara y me toca las manos, mientras las manos andan sobre el papel, junto a la pluma. Es un misterio negro, y húmedo, y frío... sí... ¡Es como el misterio de los ojos muertos! Porque hay veces que en los rostros helados, bajo los párpados blancos, los ojos negros se quedan entreabiertos... así... como está ese postigo...
  ¡Ah! ¡La muerte! . . . No es el silencio quien camina en la noche, no,
  ¡mentira! es ella . . . es la muerte . . . ¡sí! ¡la muerte! . . . Y los relojes son los
 únicos que tienen oídos para escuchar sus pasos . . . Por eso los repiten siem­
