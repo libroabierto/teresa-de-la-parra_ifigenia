@@ -1,110 +1,118 @@
- PRIMERA PARTE
+# Primera Parte
 
- UNA CARTA MUY LARGA DONDE LAS COSAS SE CUENTAN COMO
- EN LAS NOVELAS
-
-
- De María Eugenia Alonso
- a
- Cristina de Iturbe
+UNA CARTA MUY LARGA DONDE LAS COSAS SE CUENTAN COMO EN LAS NOVELAS
 
 
-¡P o r f i n te escribo, querida Cristina! No sé qué habrás pensado de mí. Cuan­
-do nos despedimos en la estación de Biarritz, recuerdo que te dije mientras te
+De María Eugenia Alonso
+a
+Cristina de Iturbe
+
+
+¡Por fin te escribo, querida Cristina! No sé qué habrás pensado de mí. Cuando
+nos despedimos en la estación de Biarritz, recuerdo que te dije mientras te
 abrazaba llena de tristeza, de suspiros y de paquetes:
- ¡Hasta pronto, pronto, prontísimo!
- Me refería a una larga carta que pensaba escribirte de París y que empezaba
-ya a redactar en mi cabeza. Sin embargo, desde aquel día memorable han trans­
-currido ya más de cuatro meses y fuera de las postales no te he escrito una
-letra.
- A ciencia cierta, no puedo decirte por qué no te escribí desde París, y
-muchísimo menos aún por qué no te escribí después, cuando radiante de
-optimismo y hecha una parisiense elegantísima, navegaba rumbo a Vene­
-zuela. Lo que sí voy a confesarte, porque lo sé y me consta, es que si desde
-aquí, desde Caracas, mi ciudad natal, no te había escrito todavía, aun cuando
-el tiempo me sobrara de un modo horrible, era única y exclusivamente, por
-pique y amor propio. Yo, que sé mentir bastante bien cuando hablo, no sé
-mentir cuando escribo, y como no quería por nada del mundo decirte la ver­
-dad, que me parecía muy humillante, había decidido callarme. Ahora me pa­
-rece que la verdad a que me refiero no es humillante sino más bien pintores­
- ca, interesante y algo medioeval. Por consiguiente he resuelto confesártela
-hoy a gritos si es que tú eres capaz de oír estos gritos que lanzan mis letras:
- ¡Ah! ¡Cristina, Cristina, lo que me fastidio!. . . Mira, por muchísimos
-esfuerzos de imaginación que tú hagas no podrás figurarte nunca lo que yo
-me fastidio desde hace un mes, encerrada dentro de esta casa de Abuelita
-que huele a jazmín, a tierra húmeda, a velas de cera, y' a fricciones de Elliman's
-Embrocation. Bueno, el olor a cera viene de dos velas que Tía Clara tiene
-continuamente encendidas ante un Nazareno vestido de terciopelo morado,
-de una media vara de estatura, el cual desde los tiempos remotos de mi
-bisabuela camina con su cruz a cuestas dentro de una redoma de vidrio. El
-olor a Elliman's Embrocation es debido al reumatismo de Abuelita, que se
-fricciona todas las noches antes de acostarse. En cuanto al olor a jazmín con
-tierra húmeda, que es el más agradable de todos, viene del patio de entrada,
-que es amplio, cuadrado, sembrado de rosas, palmas, helechos, novios, y un
-gran jazminero que se explaya verde y espesísimo en su kiosco de alambre
-sobre el cual vive como un cielo estrellado de jazmines. Pero ¡ay! lo que yo
-me fastidio aspirando estos olores sueltos o combinados, mientras miro coser
-o escucho conversar a Abuelita y a tía Clara es una cosa inexplicable. Por
-delicadeza y por tacto, cuando estoy delante de ellas disimulo mi fastidio y
-entonces converso, me río, o enseño como perra sabia a Chispita, la falde-
-rilla lanuda, quien ha aprendido ya a sentarse con sus dos patitas delanteras
-dobladas con muchísima gracia, y quien, según he observado, dentro de este
-sistema de encierro en que nos tienen a ambas, sueña de continuo con la li­
-bertad y se fastidia tanto o más que yo.
- Abuelita y tía Clara, que saben distinguir muy bien los hilos tramados de
-los zurcidos y de las randas, pero que no ven en absoluto estas cosas que se
-ocultan tras las apariencias, no conocen ni por asomos la cruel y estoica mag­
-nitud de mi aburrimiento. Abuelita tiene muy arraigado este principio falsísi­
-mo y pasado de moda:
- «Las personas que se fastidian es porque no son inteligentes».
- Y claro, como mi inteligencia brilla de continuo y no es posible ponerla en
-tela de juicio, Abuelita deduce en consecuencia que yo me divierto a todas
-horas con relación a mi capacidad intelectual, es decir: muchísimo. Y yo
-por delicadeza se lo dejo creer.
- ¡Ah! cuántas veces he pensado en plena crisis de fastidio: «Si yo le con­
-tara esto a Cristina, me aliviaría muchísimo escribiendo». Pero durante un
-mes entero he vivido presa dentro de mi amor propio como dentro de las
-cuatro paredes viejas de esta casa. Quería que tú te imaginaras maravillas
-de mi existencia actual, y recluida en mi doble prisión callaba.
- Hoy poniendo a un lado toda fantasía de amor propio, te escribo porque no
-puedo callarme más tiempo, y porque como te he dicho ya, he descubierto
-últimamente que esto de vivir tapiada siendo tan bonita como soy, lejos de
-ser humillante y vulgar parece por el contrario cosa de romance o leyenda
-de princesa cautiva. Y mira, sentada como estoy ahora ante la blanca hoja
- de papel, me siento tan encantada con la determinación y es tanto, tantísimo
-lo que deseo escribirte, que para hacerlo quisiera ya como dice el cantar «que
-la mar fuera de tinta y las playas de papel».
- Como sabes, Cristina, siempre he tenido bastante afición a las novelas.
- También la tienes tú, y creo ahora que fue sin duda ninguna esta comunidad
-de gusto por el teatro y las novelas la que hizo que intimáramos tanto durante
- los meses de vacaciones, así como durante los meses de colegio nos hizo inti­
- mar mucho aquella otra comunidad de gusto en los estudios. Tú y yo éramos
-por lo visto unas niñas intelectuales y románticas, pero éramos también, por
-otro lado, exageradamente tímidas. He reflexionado algunas veces sobre este
- sentimiento de timidez y según creo ahora debimos de adquirirlos, a fuerza
-de ver reflejadas en los cristales de las ventanas y puertas del colegio nuestras
-frentes anchas descubiertas y rodeadas de aquel semicírculo negro formado
-por nuestro pobre pelo liso y tirantísimo. Como recordarás, este último
-requisito era indispensable, según la opinión de las Madres, al buen nombre
-de las niñas, que además de ser muy ordenadas, eran inteligentes y estudiosas
-como lo éramos nosotras dos. Yo llegué a adquirir la convicción de que el
-pelo tirante constituía realmente una gran superioridad moral, y, sin embar­
-go, veía siempre con gran admiración las otras niñas cuyas cabezas «vacías
-por dentro» al decir de las Madres, tenían por fuera aquella agradable apa­
-riencia que las daban los rizos y las ondas usadas contra todo reglamento.
-A pesar de nuestra superioridad mental recuerdo que yo siempre me sentí
-en el fondo muy inferior a las del pelo flojo. Las heroínas de las novelas las
-colocaba también en este bando de las sienes cubiertas, el cual constituía a
-las claras, lo que las Madres llamaban con bastante desdén «el mundo».
-Nosotras, junto con las Madres, el Capellán del Colegio, las doce Hijas de
-María, los Santos del año Cristiano, el incienso, las casullas y los reclinatorios,
-pertenecíamos al otro bando. En realidad yo nunca tuve verdadero entusias­
-mo de partido. Aquel malvado «mundo» tan aborrecido y despreciado por
-las Madres, a pesar de su vil inferioridad, aparecía siempre ante mis ojos
-deslumbrante y lleno de prestigio. Nuestra superioridad moral resultaba para
-mí una especie de carga, y recuerdo que la llevé siempre llena de resignación y
-pensando con tristeza, que gracias a ella no desempeñaría en la vida más que
-papeles oscuros y secundarios.
+
+> ¡Hasta pronto, pronto, prontísimo!
+
+Me refería a una larga carta que pensaba escribirte de París y que empezaba ya a
+redactar en mi cabeza. Sin embargo, desde aquel día memorable han transcurrido
+ya más de cuatro meses y fuera de las postales no te he escrito una letra.
+
+A ciencia cierta, no puedo decirte por qué no te escribí desde París, y
+muchísimo menos aún por qué no te escribí después, cuando radiante de optimismo
+y hecha una parisiense elegantísima, navegaba rumbo a Venezuela. Lo que sí voy a
+confesarte, porque lo sé y me consta, es que si desde aquí, desde Caracas, mi
+ciudad natal, no te había escrito todavía, aun cuando el tiempo me sobrara de un
+modo horrible, era única y exclusivamente, por pique y amor propio. Yo, que sé
+mentir bastante bien cuando hablo, no sé mentir cuando escribo, y como no quería
+por nada del mundo decirte la verdad, que me parecía muy humillante, había
+decidido callarme. Ahora me pa­ rece que la verdad a que me refiero no es
+humillante sino más bien pintoresca, interesante y algo medioeval. Por
+consiguiente he resuelto confesártela hoy a gritos si es que tú eres capaz de
+oír estos gritos que lanzan mis letras:
+
+¡Ah! ¡Cristina, Cristina, lo que me fastidio!... Mira, por muchísimos esfuerzos
+de imaginación que tú hagas no podrás figurarte nunca lo que yo me fastidio
+desde hace un mes, encerrada dentro de esta casa de Abuelita que huele a jazmín,
+a tierra húmeda, a velas de cera, y a fricciones de Elliman's Embrocation.
+Bueno, el olor a cera viene de dos velas que Tía Clara tiene continuamente
+encendidas ante un Nazareno vestido de terciopelo morado, de una media vara de
+estatura, el cual desde los tiempos remotos de mi bisabuela camina con su cruz a
+cuestas dentro de una redoma de vidrio. El olor a Elliman's Embrocation es
+debido al reumatismo de Abuelita, que se fricciona todas las noches antes de
+acostarse. En cuanto al olor a jazmín con tierra húmeda, que es el más agradable
+de todos, viene del patio de entrada, que es amplio, cuadrado, sembrado de
+rosas, palmas, helechos, novios, y un gran jazminero que se explaya verde y
+espesísimo en su kiosco de alambre sobre el cual vive como un cielo estrellado
+de jazmines. Pero ¡ay! lo que yo me fastidio aspirando estos olores sueltos o
+combinados, mientras miro coser o escucho conversar a Abuelita y a tía Clara es
+una cosa inexplicable. Por delicadeza y por tacto, cuando estoy delante de ellas
+disimulo mi fastidio y entonces converso, me río, o enseño como perra sabia a
+Chispita, la falderilla lanuda, quien ha aprendido ya a sentarse con sus dos
+patitas delanteras dobladas con muchísima gracia, y quien, según he observado,
+dentro de este sistema de encierro en que nos tienen a ambas, sueña de continuo
+con la libertad y se fastidia tanto o más que yo.
+
+Abuelita y tía Clara, que saben distinguir muy bien los hilos tramados de los
+zurcidos y de las randas, pero que no ven en absoluto estas cosas que se ocultan
+tras las apariencias, no conocen ni por asomos la cruel y estoica magnitud de mi
+aburrimiento. Abuelita tiene muy arraigado este principio falsísimo y pasado de
+moda:
+
+> «Las personas que se fastidian es porque no son inteligentes».
+
+Y claro, como mi inteligencia brilla de continuo y no es posible ponerla en tela
+de juicio, Abuelita deduce en consecuencia que yo me divierto a todas horas con
+relación a mi capacidad intelectual, es decir: muchísimo. Y yo por delicadeza se
+lo dejo creer.
+
+¡Ah! cuántas veces he pensado en plena crisis de fastidio: «Si yo le contara
+esto a Cristina, me aliviaría muchísimo escribiendo». Pero durante un mes entero
+he vivido presa dentro de mi amor propio como dentro de las cuatro paredes
+viejas de esta casa. Quería que tú te imaginaras maravillas de mi existencia
+actual, y recluida en mi doble prisión callaba.
+
+Voy poniendo a un lado toda fantasía de amor propio, te escribo porque no puedo
+callarme más tiempo, y porque como te he dicho ya, he descubierto últimamente
+que esto de vivir tapiada siendo tan bonita como soy, lejos de ser humillante y
+vulgar parece por el contrario cosa de romance o leyenda de princesa cautiva. Y
+mira, sentada como estoy ahora ante la blanca hoja de papel, me siento tan
+encantada con la determinación y es tanto, tantísimo lo que deseo escribirte,
+que para hacerlo quisiera ya como dice el cantar «que la mar fuera de tinta y
+las playas de papel».
+
+Como sabes, Cristina, siempre he tenido bastante afición a las novelas.
+
+También la tienes tú, y creo ahora que fue sin duda ninguna esta comunidad de
+gusto por el teatro y las novelas la que hizo que intimáramos tanto durante los
+meses de vacaciones, así como durante los meses de colegio nos hizo intimar
+mucho aquella otra comunidad de gusto en los estudios. Tú y yo éramos por lo
+visto unas niñas intelectuales y románticas, pero éramos también, por otro lado,
+exageradamente tímidas. He reflexionado algunas veces sobre este sentimiento de
+timidez y según creo ahora debimos de adquirirlos, a fuerza de ver reflejadas en
+los cristales de las ventanas y puertas del colegio nuestras frentes anchas
+descubiertas y rodeadas de aquel semicírculo negro formado por nuestro pobre
+pelo liso y tirantísimo. Como recordarás, este último requisito era
+indispensable, según la opinión de las Madres, al buen nombre de las niñas, que
+además de ser muy ordenadas, eran inteligentes y estudiosas como lo éramos
+nosotras dos. Yo llegué a adquirir la convicción de que el pelo tirante
+constituía realmente una gran superioridad moral, y, sin embargo, veía siempre
+con gran admiración las otras niñas cuyas cabezas «vacías por dentro» al decir
+de las Madres, tenían por fuera aquella agradable apa­ riencia que las daban los
+rizos y las ondas usadas contra todo reglamento.  A pesar de nuestra
+superioridad mental recuerdo que yo siempre me sentí en el fondo muy inferior a
+las del pelo flojo. Las heroínas de las novelas las colocaba también en este
+bando de las sienes cubiertas, el cual constituía a las claras, lo que las
+Madres llamaban con bastante desdén «el mundo».  Nosotras, junto con las Madres,
+el Capellán del Colegio, las doce Hijas de María, los Santos del año Cristiano,
+el incienso, las casullas y los reclinatorios, pertenecíamos al otro bando. En
+realidad yo nunca tuve verdadero entusiasmo de partido. Aquel malvado «mundo»
+tan aborrecido y despreciado por las Madres, a pesar de su vil inferioridad,
+aparecía siempre ante mis ojos deslumbrante y lleno de prestigio. Nuestra
+superioridad moral resultaba para mí una especie de carga, y recuerdo que la
+llevé siempre llena de resignación y pensando con tristeza, que gracias a ella
+no desempeñaría en la vida más que papeles oscuros y secundarios.
+
  Lo que quiero explicarte ahora es que en estos cuatro meses he variado
 por completo de ideas. Creo que me he pasado con armas y bagajes al abo­
 minable bando del mundo y siento que he adquirido en él una elevada gra­
