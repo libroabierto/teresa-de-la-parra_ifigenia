@@ -87,476 +87,166 @@ Una vez me enamoré de una toquita de luto que según me dijo la modista sólo u
 Pero es lo cierto que ahora con mi toquita y mi supuesta viudez, París me parecía una cosa nueva, desconocida. No era ya aquella ciudad brumosa y fría que en los días de vacaciones de Navidad recorríamos tú y yo cogidas de la mano, envueltas en un abrigo y seguidas del aya inglesa, mientras nos dirigíamos a las matinés de la Ópera o del Teatro Francés. Entonces, todo me intimidaba. Las elegantes señoras me causaban una impresión de miedo y me sentía tan pequeñita, tan cenicienta, junto a tanta belleza y tanto lujo. Ahora no, ahora ya me había tocado la varita mágica, andaba con soltura, con seguridad y con muchísima gracia, porque sabía demasido que aquello de: «*Comme mademoiselle est bien faite!*», me lo decían también a gritos y con puntos de exclamación los ojos de todos cuantos me veían. Era una cosa tan general que yo vivía encantada. Me admiraba todo el mundo. Mira: me admiraban mis amigos los Ramírez, me admiraban sus niños; me admiraban unos españoles muy simpáticos que en el comedor tenían su mesa frente a nosotros; me admiraba el gerente del hotel; el camarero que nos atendía; el muchacho del ascensor; el marido de mi *manicure*, los dependientes de la peluquería; y un señor muy elegante que encontré una mañana por la calle y que al mirarme venir le dijo a otro que iba con él:
 
 —*Regarde donc, quelle jolie fille!*
+
 Decididamente, en aquellos días gloriosos, París abrió de repente sus brazos y me recibió de hija, así, de pronto, porque le dio la gana. ¡Ah! ¡Era indudable! Yo formaba ya parte de aquella falange de mujeres a las cuales evocaba Papá entornando los ojos con una expresión extraña que yo entonces no acababa de explicarme muy bien porque era como si hablase de algún dulce muy rico mientras decía:
 
 —¡¡Qué mujeres!!
+
 Nunca me había ocurrido nada igual, Cristina. Sentía dentro de mí misma una alegría loca. Me parecía que mi espíritu se abría todo en flores como aquellos árboles del parque del colegio en los meses de abril y mayo. Era como si en mí misma hubiese descubierto de pronto una mina, un manantial de optimismo y sólo vivía para beberlo y para contemplarme en él. Creo ahora que fue debido a aquella satisfacción egoísta por lo que nunca te escribí sino postales lacónicas que tú me contestabas con cartas inexpresivas y tristes. Hoy, al releerlas me parece adivinar en ellas toda tu amarga decepción de entonces y me conmuevo de contrición. Pero pienso que a estas horas debes haber comprendido el porqué de mi indiferencia tan fugaz como mi alegría y que generosamente la habrás perdonado ya.
 
 Algunas veces, también, me ponía a pensar que aquel optimismo y aquella alegría de vivir que me hacían tan feliz eran impropios en medio de una desgracia reciente como la mía. Tenía entonces ratos de un remordimiento agudo, y para acallarlo en desagravio al alma de Papá le daba unos francos a algún chiquillo harapiento o entraba a dejar una limosna en el cepillo de la iglesia.
 
 ¡Ah! papá ¡pobre papá!... Mientras esto le cuento a mi amiga Cristina, allá, en las suaves visiones de mi mente, ha pasado un instante la indulgencia de tu rostro, florecida por la indulgencia aprobadora de tu sonrisa. ¡Y cómo la reconozco! ¡Mal podías enojarte! ¡Aquellos días fugaces en que tu espíritu pródigo y jovial pareció renacer por un momento en mi alma eran la única herencia que debías legarme!
 
-En París estuvimos casi tres meses, por retraso de fondos y cambio de plan
-en el itinerario del matrimonio Ramírez. Los días, que se sucedían en parti­
-cular con una rapidez vertiginosa, en conjunto me parecían muchos y muy
-largos. Sentía que se me escapaban y tenía siempre la sensación de que corría
-tras ellos para detenerlos. Me preocupaba muchísimo la idea de mi partida,
-pensaba con tristeza que aquel París que se mostraba conmigo tan amable,
-tan afectuoso, era menester abandonarlo un día u otro, como a ti, como a
-Madame Jourdan, como a todo lo que he querido y me ha querido en la vida.
- «¡Qué fatalidad! ¡Qué desgracia tan grande» pensaba continuamente 
-Y esta perspectiva era lo único que amargaba mi vida alegre y feliz de pájaro
-a quien por fin le han crecido las alas.
- Pero como todo llega en este mundo, llegó un triste día en que los Ramí­
-rez y yo tuvimos que arreglar definitivamente nuestros baúles. Estrené yo
-mi vestido de viaje en cuya elección me había esmerado muchísimo a fin de
-que resultase lo más elegante y mejor cortado posible, y con mi nécessaire
-en la mano, luego de caminar un rato ante el espejo más grande del hotel y
-comprobar así, que unidos el nécessaire y yo, teníamos una silueta viajera
-bastante chic, tomé con los Ramírez el tren para Barcelona donde nos espe­
-raba el trasatlántico «Manuel Arnús» que debía conducirnos a La Guaira.
- Recuerdo que antes de embarcarme te dejé un abrazo de despedida en una
-postal. No te escribí más porque me ahogaba de melancolía y porque tenía
-también que ir a comprar un frasco de pintura líquida de Guerlain, que acaba­
-ban de recomendarme muchísimo como especial para resistir el aire violento
-del mar, el cual barre del cutis toda pintura en polvo.
- Luego nos embarcamos.
- ¡Ah! todavía me parece tener en los oídos aquel alarido de la sirena al
-arrancar el vapor y me pongo tan triste al evocarlo que prefiero no hablar de
-esto.
- Afortunadamente que la vida a bordo me distrajo pronto. Sentirse en alta
-mar, rodeada de cielo por los cuatro costados y rumbo a América, es una sen­
-sación deliciosa. Se piensa en Cristóbal Colón, en las novelas de Julio Verne,
-en las islas desiertas, en las montañas que hay debajo del agua, y dan ganas
-de naufragar para correr aventuras. Pero esta parte geográfica se olvida
-y se disipa muy pronto, cuando empieza a entrarse de lleno en el ambiente
-social de a bordo, que es de los más interesantes. Bueno, tú sabes muy bien
-que yo no acostumbro a alabarme porque me parece de mal gusto, pero sin
-embargo, no puedo negarte que desde mi entrada al vapor comprendí que
-causaba gran sensación entre mis compañeros de viaje. Casi todas las señoras
-yacían mareadas en sus sillas de extensión o encerradas en los camarotes. Yo,
-que no me había mareado ni un segundo no me ocupaba en cambio sino de
-presumir sacando a colación todo el repertorio de abrigos, vestidos, y ciertos
-sombreros flexibles que aprendí a ponerme con muchísima gracia so pretexto
-de preservarme del viento. Eran mi especialidad; me ponía uno blanco y
- negro en la mañana, otro lila al mediodía, uno gris en la noche, y me paseaba
- de arriba abajo con un libro o un frasco de sales en la mano, y con toda aque­
-lla soltura, gracia y distinción adquirida en los días de mi vida parisiense y
-que todavía tú no tienes el honor de conocerme.
- Los hombres, sentados sobre cubierta, con la gorra de lana encajada hasta
-las cejas y algún habano o cigarrillo en la boca, al sentirme pasar, levantaban
-inmediatamente los ojos del libro o revista donde se hallaban absortos, y me
- seguían un rato con una larga mirada llena de interés. Las mujeres por otro
- lado admiraban el chic de mis vestidos y los veían con algo de curiosidad, creo
- que también con algo de envidia y como si quisieran copiarlos. No puedo
-ocultarte que todas estas manifestaciones me halagaban muchísimo. ¿No
-representaban acaso el encantador succés, cosa que hasta entonces había sido
-para mí algo lejano, fabuloso, y deslumbrante como un sol? Me sentía, pues,
-felicísima al comprobar que poseía semejante tesoro, y te lo confieso a ti sin
-reparos ni modestias de ninguna clase, porque sé muy bien que tú, tarde o
-temprano, cuando renuncies al pelo largo, uses tacones Luis XV, te pintes
-las mejillas, y sobre todo la boca, has de experimentarlo también y por consi­
-guiente no vas a escucharme con el profundo desprecio con que escuchan
-estas cosas las personas incapacitadas para comprenderlas verbigracia: Abue-
-lita, las Madres del Colegio y San Jerónimo, quien, según parece, escribió
-horrores sobre las mujeres chic de su tiempo.
- Pasadas las primeras horas de travesía comencé pronto a tener amigos a
-más de mis acompañantes los Ramírez. Pero el más interesante de mis amigos
-resultó ser un poeta colombiano, ex diplomático, viudo y ya algo viejo, el cual,
-lleno de galantería, finura y entusiasmo me acompañaba a todas horas del día.
-Por la noche, cuando tocaban o cantaban en el salón, yo, en consideración a
-mi duelo, solía evadirme del bullicio, y buscaba algún solitario rincón de
-cubierta y allí, arrullada por la música y apoyada de codos en la barandilla, me
-daba a contemplar el reflejo fantástico de la luna sobre el mar y aquella estela
-blanca que íbamos dejando en el azul oscuro de las aguas. Mi amigo, que
- tenía la delicadeza de notar siempre mi ausencia, a los pocos minutos se venía
- a mi lado, se apoyaba también de codos en la barandilla y entonces suave­
- mente, en un monótono silbar de eses, me recitaba sus versos. Esto me ponía
- encantada. No porque los versos fuesen muy bonitos, puesto que a decir
- verdad jamás les puse la menor atención, sino porque estando libre de toda
- conversación, mientras él recitaba, yo me entregaba de lleno a mis propios
- pensamientos y me decía: «No cabe duda que está enamoradísimo de mí».
- Y como era la primera vez que esto me ocurría y como el ambiente de la
- noche era de los más propicios, me lanzaba en alas de mis recuerdos a través
- de aquellas novelas de «La Mode Illustrée» que leíamos en vacaciones tú y
- yo, me comparaba inmediatamente con las más interesantes de sus heroínas,
- me consideraba situada al mismo nivel de ellas o quizás a mayor altura, y
- claro, ante semejante visión quedaba tan satisfecha, que cuando mi amigo
- terminaba la última estrofa de sus versos, yo los elogiaba apasionadamente
- con la más entusiasta y sincera admiración.
- Si la amistad entre mi amigo y yo no hubiera pasado nunca de ahí, todo
- habría quedado muy bien, él hubiese adquirido a mis ojos un eterno presti­
- gio, y después de separarnos yo lo habría contemplado siempre entre la bru­
- ma de mis recuerdos, esfumándose allá, en lontananza, junto al mar y la
- luna como en un dulce ensueño de romanticismo y de melancolía. Cristina,
- los hombres no tienen tacto. Aunque sean más sabios que Salomón y más
- viejos que Matusalén no aprenden jamás esa cosa tan sencilla, fácil y elemen­
- tal que se llama «tener tacto». Semejante experiencia la adquirí en el trato
- de mí amigo el poeta, ex diplomático, del vapor, quien, según parece era muy
-instruido, inteligente y discreto en cualquier otra materia que no se relacio­
-nase con ésta del tacto u oportunidad. Pero voy a referirte el incidente, de
-donde proviene este juicio o experiencia a fin de que tú misma opines.
- Imagínate, que una noche en que se celebró a bordo no sé qué fecha patrió­
-tica, todos los pasajeros habían tomado champagne y se hallaban por lo tanto
-muy alegres. Yo en compensación, estaba de mal humor, porque al ir a pren­
-derme un alfiler me había dado un arañazo larguísimo en la mano izquierda,
-cosa que me la tenía bastante desfigurada. Por consiguiente, aquella noche,
-con más razón que de costumbre, mientras los demás se divertían en el salón,
-fui a apoyarme de codos en mi solitario rincón de cubierta, y también, como
-de costumbre, al poco rato mi amigo, vino a situarse junto a mí. Debido a
-mi mal humor, yo, contemplando el mar iluminado por la luna, calculaba con
-rabia el número de días que iba a durar en mi mano la cicatriz del rasguño y
-no decía una palabra. Mi amigo, entonces, demostrando tener cierta delica­
-deza, en vez de lanzarse a recitar sus versos, me interrogó suavemente:
- ¿Qué le pasa esta noche, María Eugenia, que está tan triste?
- Es que me he hecho una herida en la mano izquierda, que me duele
-muchísimo.
- Y como siempre me ha parecido lo mejor el mostrar con entera franqueza
-aquellos defectos físicos que, por ser muy visibles, no pueden ocultarse, le
-mostré mi mano izquierda que se hallaba cruzada diagonalmente por una
-larguísima línea roja.
- El, para poder examinar el rasguño de cerca, tomó mí mano entre las suyas,
-y después de decir que la herida era leve y casi imperceptible se quedó con­
-templando la mano y añadió muy quedo con la voz de recitar:
- ¡Ah! . . . ¡Y qué divina mano de Madona Italiana! Parece tallada en
-marfil por el celo de algún gran artista del Renacimiento para despertar la fe
-en los corazones incrédulos. Si cuando visité hace un año la Cartuja de
-Florencia hubiera visto una Virgen con manos semejantes: ¡habría profesado!
- Como sabes, Cristina, mis manos, en efecto, no están mal; y como también
-recordarás, he tenido siempre una marcada predilección por ellas. El cambio
-de temperatura les había dado yo no sé qué matiz pálido, de modo, que en
-aquel momento, prestigiadas por la luna, pulidas y cuidadas, a pesar del rasgu­
-ño de la izquierda, merecían en realidad aquel elogio, que a más de parecerme
-exacto, me pareció también delicado, escogido, y de muy buen gusto. Y para
-que las manos luciesen aún mejor, pasada en parte la contrariedad, las enlacé
-juntas con lánguida actitud, sobre el enlace de los dedos apoyé suavemente la
-barba y seguí mirando el mar.
- Ahora parecen dos azucenas sosteniendo una rosa volvió a recitar mi
-amigo . Dígame, María Eugenia: ¿sus mejillas no han tenido nunca envidia
-de sus manos?
- No respondí yo . Aquí todo el mundo vive en gran armonía.
- Y porque me pareció muy oportuno dar a tan breve frase una expresión
- cualquiera, sin cortar la línea de mi actitud, entorné ligeramente los ojos.
-Con los ojos ligeramente entornados, envolví el rostro de mi amigo en una
-larga mirada y sonreí.
- Pero, por desgracia, al llegar a este punto de nuestro amable diálogo: ¿qué
-dirás tú, Cristina, que se le ocurrió de pronto a mi amigo el poeta? . . . Pues
-se le ocurrió que su boca feísima, de bigotes grises, olorosa a tabaco y a
-champagne, podía darle un beso a la mía, que en aquel instante se hallaba
-sonriente, fresca, y recién pintada con carmín de Guerlain. ¡Ah!, pero afor­
-tunadamente, como sabes, soy ágil y asustadiza, gracias a lo cual no pudo
-consumarse tan desagradable proyecto; porque al sentirme de golpe presa en
-aquellos brazos, me dominó el espanto producido por la misma sorpresa, y
-sacudiendo nerviosamente la cabeza en todas direcciones, logré escurrirme
-hacia un lado y escaparme a toda prisa. Ya a distancia, por curiosidad, me
-volví a mirar en qué había parado tan singular escena, y pude entonces darme
-cuenta de que las violentas sacudidas de mi cabeza combinadas con la brusca
-evasión, habían derrumbado los lentes de encima de la nariz de mi amigo, el
-cual era muy miope, y que por lo tanto en aquel minuto crítico, el dolor de la
-derrota, y el dolor del desprecio, se unían en su persona al dolor oscurísimo
-de la ceguera.
- ¡Ah! Cristina, por muchos años que viva, no olvidaré jamás aquella silueta
-corta, desprestigiada, ciega, inclinada hacia el suelo, buscando sin esperanza
-los perdidos lentes, que yo a tan larga distancia miraba brillar muy cerquita
-de sus pies.
- Desde esa noche, ya no volví a hablar, ni a saludar más a, mi gran admirador
-y amigo el poeta colombiano. No porque en realidad me sintiese muy ofen­
-dida, sino porque después de lo ocurrido me pareció muy de rigor el adoptar
-una actitud digna, silenciosa y enigmática. Pero es lo cierto que encastillada
-así dentro de mi distinción y mi rencor, la vida a bordo me parecía mucho
-menos divertida. Ya no tenía quien me manifestase en galante media voz su
-admiración por mi persona; ni quien celebrase mi ingenio; ni quien me reci­
- tase versos a la luz de la luna; ni quien me hiciese amables atenciones. Cuan­
-do subía a cubierta con mi sombrerito flexible recién puesto buscaba ahora
-la soledad, y me quedaba largos ratos en un elevado puente sentada frente
- al mar, contemplando con melancolía, aquel andar perseverante del vapor y
-pensando de tiempo en tiempo que mi amigo había cometido aquella gran
- gaffe por tener una idea equivocada acerca de sus atractivos personales. Me
-decía que sin duda ninguna, él jamás se había dado cuenta de que yo lo
- encontraba feo, narizón, mal proporcionado, muy viejo, demasiado fino, y
- que en lo tocante a sus versos nunca había apreciado en ellos sino aquel ritmo
- monótono que servía de arrullo a mis propios pensamientos.
- Desde entonces, Cristina, deduje que los hombres, en general, aunque
- parezcan saber muchísimo, es como si no supieran nada, porque no siéndoles
- dado el mirar su propia imagen reflejada en el espíritu ajeno se ignoran a sí
- mismos tan totalmente, como si no se hubiesen visto jamás en un espejo. Por
- eso, cuando Abuelita, en la mesa, habla indignada de los hombres de nuestros
-días, y me previene contra ellos llamándoles alabanciosos y calumniadores yo,
-lejos de compartir su indignación, me acuerdo de mi amigo el poeta en el
-momento de buscar sus lentes, y me sonrío. Sí, Cristina, por más que diga
-Abuelita, yo creo que los hombres calumnian de buena fe, que son alabancio­
-sos porque honradamente se ignoran a sí mismos y que atraviesan la vida
-felices y rodeados por la aureola piadosísima de la equivocación, mientras los
-escolta en silencio, como can fiel e invisible, un discreto ridículo.
+En París estuvimos casi tres meses, por retraso de fondos y cambio de plan en el itinerario del matrimonio Ramírez. Los días, que se sucedían en particular con una rapidez vertiginosa, en conjunto me parecían muchos y muy largos. Sentía que se me escapaban y tenía siempre la sensación de que corría tras ellos para detenerlos. Me preocupaba muchísimo la idea de mi partida, pensaba con tristeza que aquel París que se mostraba conmigo tan amable, tan afectuoso, era menester abandonarlo un día u otro, como a ti, como a Madame Jourdan, como a todo lo que he querido y me ha querido en la vida. «¡Qué fatalidad! ¡Qué desgracia tan grande» –pensaba continuamente–. Y esta perspectiva era lo único que amargaba mi vida alegre y feliz de pájaro a quien por fin le han crecido las alas.
+
+Pero como todo llega en este mundo, llegó un triste día en que los Ramírez y yo tuvimos que arreglar definitivamente nuestros baúles. Estrené yo mi vestido de viaje en cuya elección me había esmerado muchísimo a fin de que resultase lo más elegante y mejor cortado posible, y con mi nécessaire en la mano, luego de caminar un rato ante el espejo más grande del hotel y comprobar así, que unidos el *nécessaire* y yo, teníamos una silueta viajera bastante *chic*, tomé con los Ramírez el tren para Barcelona donde nos esperaba el trasatlántico «Manuel Arnús» que debía conducirnos a La Guaira.
+
+Recuerdo que antes de embarcarme te dejé un abrazo de despedida en una postal. No te escribí más porque me ahogaba de melancolía y porque tenía también que ir a comprar un frasco de pintura líquida de Guerlain, que acababan de recomendarme muchísimo como especial para resistir el aire violento del mar, el cual barre del cutis toda pintura en polvo.
+
+Luego nos embarcamos.
+
+¡Ah! todavía me parece tener en los oídos aquel alarido de la sirena al arrancar el vapor y me pongo tan triste al evocarlo que prefiero no hablar de esto.
+
+Afortunadamente que la vida a bordo me distrajo pronto. Sentirse en alta mar, rodeada de cielo por los cuatro costados y rumbo a América, es una sensación deliciosa. Se piensa en Cristóbal Colón, en las novelas de Julio Verne, en las islas desiertas, en las montañas que hay debajo del agua, y dan ganas de naufragar para correr aventuras. Pero esta parte geográfica se olvida y se disipa muy pronto, cuando empieza a entrarse de lleno en el ambiente social de a bordo, que es de los más interesantes. Bueno, tú sabes muy bien que yo no acostumbro a alabarme porque me parece de mal gusto, pero sin embargo, no puedo negarte que desde mi entrada al vapor comprendí que causaba gran sensación entre mis compañeros de viaje. Casi todas las señoras yacían mareadas en sus sillas de extensión o encerradas en los camarotes. Yo, que no me había mareado ni un segundo no me ocupaba en cambio sino de presumir sacando a colación todo el repertorio de abrigos, vestidos, y ciertos sombreros flexibles que aprendí a ponerme con muchísima gracia so pretexto de preservarme del viento. Eran mi especialidad; me ponía uno blanco y negro en la mañana, otro lila al mediodía, uno gris en la noche, y me paseaba de arriba abajo con un libro o un frasco de sales en la mano, y con toda aquella soltura, gracia y distinción adquirida en los días de mi vida parisiense y que todavía tú no tienes el honor de conocerme.
+
+Los hombres, sentados sobre cubierta, con la gorra de lana encajada hasta las cejas y algún habano o cigarrillo en la boca, al sentirme pasar, levantaban inmediatamente los ojos del libro o revista donde se hallaban absortos, y me seguían un rato con una larga mirada llena de interés. Las mujeres por otro lado admiraban el *chic* de mis vestidos y los veían con algo de curiosidad, creo que también con algo de envidia y como si quisieran copiarlos. No puedo ocultarte que todas estas manifestaciones me halagaban muchísimo. ¿No representaban acaso el encantador *succès*, cosa que hasta entonces había sido para mí algo lejano, fabuloso, y deslumbrante como un sol? Me sentía, pues, felicísima al comprobar que poseía semejante tesoro, y te lo confieso a ti sin reparos ni modestias de ninguna clase, porque sé muy bien que tú, tarde o temprano, cuando renuncies al pelo largo, uses tacones Luis XV, te pintes las mejillas, y sobre todo la boca, has de experimentarlo también y por consiguiente no vas a escucharme con el profundo desprecio con que escuchan estas cosas las personas incapacitadas para comprenderlas verbigracia: Abuelita, las Madres del Colegio y San Jerónimo, quien, según parece, escribió horrores sobre las mujeres *chic* de su tiempo.
+
+Pasadas las primeras horas de travesía comencé pronto a tener amigos a más de mis acompañantes los Ramírez. Pero el más interesante de mis amigos resultó ser un poeta colombiano, ex diplomático, viudo y ya algo viejo, el cual, lleno de galantería, finura y entusiasmo me acompañaba a todas horas del día. Por la noche, cuando tocaban o cantaban en el salón, yo, en consideración a mi duelo, solía evadirme del bullicio, y buscaba algún solitario rincón de cubierta y allí, arrullada por la música y apoyada de codos en la barandilla, me daba a contemplar el reflejo fantástico de la luna sobre el mar y aquella estela blanca que íbamos dejando en el azul oscuro de las aguas. Mi amigo, que tenía la delicadeza de notar siempre mi ausencia, a los pocos minutos se venía a mi lado, se apoyaba también de codos en la barandilla y entonces suavemente, en un monótono silbar de eses, me recitaba sus versos. Esto me ponía encantada. No porque los versos fuesen muy bonitos, puesto que a decir verdad jamás les puse la menor atención, sino porque estando libre de toda conversación, mientras él recitaba, yo me entregaba de lleno a mis propios pensamientos y me decía: «No cabe duda que está enamoradísimo de mí». Y como era la primera vez que esto me ocurría y como el ambiente de la noche era de los más propicios, me lanzaba en alas de mis recuerdos a través de aquellas novelas de *La Mode Illustrée* que leíamos en vacaciones tú y yo, me comparaba inmediatamente con las más interesantes de sus heroínas, me consideraba situada al mismo nivel de ellas o quizás a mayor altura, y claro, ante semejante visión quedaba tan satisfecha, que cuando mi amigo terminaba la última estrofa de sus versos, yo los elogiaba apasionadamente con la más entusiasta y sincera admiración.
+
+Si la amistad entre mi amigo y yo no hubiera pasado nunca de ahí, todo habría quedado muy bien, él hubiese adquirido a mis ojos un eterno prestigio, y después de separarnos yo lo habría contemplado siempre entre la bruma de mis recuerdos, esfumándose allá, en lontananza, junto al mar y la  luna como en un dulce ensueño de romanticismo y de melancolía. Cristina, los hombres no tienen tacto. Aunque sean más sabios que Salomón y más  viejos que Matusalén no aprenden jamás esa cosa tan sencilla, fácil y elemental que se llama «tener tacto». Semejante experiencia la adquirí en el trato de mi amigo el poeta, ex diplomático, del vapor, quien, según parece era muy instruido, inteligente y discreto en cualquier otra materia que no se relacionase con ésta del tacto u oportunidad. Pero voy a referirte el incidente, de donde proviene este juicio o experiencia a fin de que tú misma opines.
+
+Imagínate, que una noche en que se celebró a bordo no sé qué fecha patriótica, todos los pasajeros habían tomado *champagne* y se hallaban por lo tanto muy alegres. Yo en compensación, estaba de mal humor, porque al ir a prenderme un alfiler me había dado un arañazo larguísimo en la mano izquierda, cosa que me la tenía bastante desfigurada. Por consiguiente, aquella noche, con más razón que de costumbre, mientras los demás se divertían en el salón, fui a apoyarme de codos en mi solitario rincón de cubierta, y también, como de costumbre, al poco rato mi amigo, vino a situarse junto a mí. Debido a mi mal humor, yo, contemplando el mar iluminado por la luna, calculaba con rabia el número de días que iba a durar en mi mano la cicatriz del rasguño y no decía una palabra. Mi amigo, entonces, demostrando tener cierta delicadeza, en vez de lanzarse a recitar sus versos, me interrogó suavemente:
+
+—¿Qué le pasa esta noche, María Eugenia, que está tan triste?
+
+—Es que me he hecho una herida en la mano izquierda, que me duele muchísimo.
+
+Y como siempre me ha parecido lo mejor el mostrar con entera franqueza aquellos defectos físicos que, por ser muy visibles, no pueden ocultarse, le mostré mi mano izquierda que se hallaba cruzada diagonalmente por una larguísima línea roja.
+
+Él, para poder examinar el rasguño de cerca, tomó mi mano entre las suyas, y después de decir que la herida era leve y casi imperceptible se quedó contemplando la mano y añadió muy quedo con la voz de recitar:
+
+—¡Ah!... ¡Y qué divina mano de madona italiana! Parece tallada en marfil por el celo de algún gran artista del Renacimiento para despertar la fe en los corazones incrédulos. Si cuando visité hace un año la Cartuja de Florencia hubiera visto una Virgen con manos semejantes: ¡habría profesado!
+
+Como sabes, Cristina, mis manos, en efecto, no están mal; y como también recordarás, he tenido siempre una marcada predilección por ellas. El cambio de temperatura les había dado yo no sé qué matiz pálido, de modo, que en aquel momento, prestigiadas por la luna, pulidas y cuidadas, a pesar del rasguño de la izquierda, merecían en realidad aquel elogio, que a más de parecerme exacto, me pareció también delicado, escogido, y de muy buen gusto. Y para que las manos luciesen aún mejor, pasada en parte la contrariedad, las enlacé juntas con lánguida actitud, sobre el enlace de los dedos apoyé suavemente la barba y seguí mirando el mar.
+
+—Ahora parecen dos azucenas sosteniendo una rosa –volvió a recitar mi amigo–. Dígame, María Eugenia: ¿sus mejillas no han tenido nunca envidia de sus manos?
+
+—No –respondí yo–. Aquí todo el mundo vive en gran armonía.
+
+Y porque me pareció muy oportuno dar a tan breve frase una expresión cualquiera, sin cortar la línea de mi actitud, entorné ligeramente los ojos. Con los ojos ligeramente entornados, envolví el rostro de mi amigo en una larga mirada y sonreí.
+
+Pero, por desgracia, al llegar a este punto de nuestro amable diálogo: ¿qué dirás tú, Cristina, que se le ocurrió de pronto a mi amigo el poeta?... Pues se le ocurrió que su boca feísima, de bigotes grises, olorosa a tabaco y a *champagne*, podía darle un beso a la mía, que en aquel instante se hallaba sonriente, fresca, y recién pintada con carmín de Guerlain. ¡Ah!, pero afortunadamente, como sabes, soy ágil y asustadiza, gracias a lo cual no pudo consumarse tan desagradable proyecto; porque al sentirme de golpe presa en aquellos brazos, me dominó el espanto producido por la misma sorpresa, y sacudiendo nerviosamente la cabeza en todas direcciones, logré escurrirme hacia un lado y escaparme a toda prisa. Ya a distancia, por curiosidad, me volví a mirar en qué había parado tan singular escena, y pude entonces darme cuenta de que las violentas sacudidas de mi cabeza combinadas con la brusca evasión, habían derrumbado los lentes de encima de la nariz de mi amigo, el cual era muy miope, y que por lo tanto en aquel minuto crítico, el dolor de la derrota, y el dolor del desprecio, se unían en su persona al dolor oscurísimo de la ceguera.
+
+¡Ah! Cristina, por muchos años que viva, no olvidaré jamás aquella silueta corta, desprestigiada, ciega, inclinada hacia el suelo, buscando sin esperanza los perdidos lentes, que yo a tan larga distancia miraba brillar muy cerquita de sus pies.
+
+Desde esa noche, ya no volví a hablar, ni a saludar más a mi gran admirador y amigo el poeta colombiano. No porque en realidad me sintiese muy ofendida, sino porque después de lo ocurrido me pareció muy de rigor el adoptar una actitud digna, silenciosa y enigmática. Pero es lo cierto que encastillada así dentro de mi distinción y mi rencor, la vida a bordo me parecía mucho menos divertida. Ya no tenía quien me manifestase en galante media voz su admiración por mi persona; ni quien celebrase mi ingenio; ni quien me recitase versos a la luz de la luna; ni quien me hiciese amables atenciones. Cuando subía a cubierta con mi sombrerito flexible recién puesto buscaba ahora la soledad, y me quedaba largos ratos en mi elevado puente sentada frente al mar, contemplando con melancolía, aquel andar perseverante del vapor y pensando de tiempo en tiempo que mi amigo había cometido aquella gran *gaffe* por tener una idea equivocada acerca de sus atractivos personales. Me decía que sin duda ninguna, él jamás se había dado cuenta de que yo lo encontraba feo, narizón, mal proporcionado, muy viejo, demasiado fino, y que en lo tocante a sus versos nunca había apreciado en ellos sino aquel ritmo monótono que servía de arrullo a mis propios pensamientos.
+
+Desde entonces, Cristina, deduje que los hombres, en general, aunque parezcan saber muchísimo, es como si no supieran nada, porque no siéndoles dado el mirar su propia imagen reflejada en el espíritu ajeno se ignoran a sí mismos tan totalmente, como si no se hubiesen visto jamás en un espejo. Por eso, cuando Abuelita, en la mesa, habla indignada de los hombres de nuestros días, y me previene contra ellos llamándoles alabanciosos y calumniadores yo, lejos de compartir su indignación, me acuerdo de mi amigo el poeta en el momento de buscar sus lentes, y me sonrío. Sí, Cristina, por más que diga Abuelita, yo creo que los hombres calumnian de buena fe, que son alabanciosos porque honradamente se ignoran a sí mismos y que atraviesan la vida felices y rodeados por la aureola piadosísima de la equivocación, mientras los escolta en silencio, como can fiel e invisible, un discreto ridículo.
+
+Después de navegar dieciocho días, una tarde serena, bajo la media luz del más inverosímil de los crepúsculos, entramos por fin en aguas de Venezuela.
+
+Al saber la noticia, llena de sensibilidad y de íntima emoción, para sentir y ver bien desde lo alto ese espectáculo triunfante que es llegar a tierra, escondida de todos, me fui a sentar en mi elevado puente solitario.
+
+Siempre recordaré aquella tarde.
+
+Hay instantes de la vida, Cristina, en que el espíritu parece desmaterializarse por completo, y lo sentimos erguirse en nosotros exaltado y sublime, como un vidente que nos hablara de cosas desconocidas. Experimentamos entonces una santa resignación por los dolores futuros, y sentimos también en el alma ese melancólico florecer de las alegrías pasadas, mucho más tristes que las tristezas, porque son en nuestro recuerdo como cadáveres de cuerpo presente que no nos decidimos a enterrar nunca... ¿verdad que esto lo has experimentado también tú algunas veces?... ¿No lo has sentido nunca oyendo música, o mirando un paisaje en la sensibilidad infinita de un crepúsculo?... Aquella tarde, sentada en el puente, perdidos los ojos por el horizonte y los celajes, me pareció que desde lo alto de una atalaya miraba mi vida entera, la pasada y la futura, y no sé por qué tuve un gran presentimiento de tristeza.
+
+El vapor caminaba lentamente hacia unas luces que, bajo el tenue cendal de las nubes, se confundían a lo lejos con las estrellas apenas encendidas en el cielo. Poco a poco, las prendidas señuelas comenzaron a multiplicarse y a crecer, como si Venus aquella tarde hubiera querido prodigarse generosamente sobre el mar. Luego, imprecisos, esfumados en la penumbra y en la niebla fueron separándose enteramente del cielo los bloques oscuros de las montañas. Las luces alegres, brillantes, titilaban arriba, abajo, sembradas en aquel cielo profundo de los montes cada vez más familiares, más hospitalarios, más abiertos de brazos al vapor, hasta que de repente, del lado izquierdo, como una iluminación fantástica, se encendió todo el mar, al pie de la montaña. Los pasajeros, apoyados en la barandilla de cubierta, bajo mi puente de observación, con la alegría que inspira a los navegantes la próxima hospitalidad del puerto, empezaron a agitarse con una inmensa alegría llena de voces y de risas.
+
+Porque aquella iluminación la formaban las luces de Macuto, y Macuto, Cristina, es nuestra playa elegante, nuestro balneario de moda, es como si dijéramos el Deauville o el San Sebastián de Venezuela.
+
+El vapor, todo encendido también, al igual de un galán que paseara la calle, caminando de costado, se acercaba más y más hacia las luces. Ellas, en la alegría de su fiesta rutilaban y eran ya como mil voces amigas que nos llamaran a gritos desde tierra.
+
+Los venezolanos llenos de entusiasmo, comenzaron a opinar:
+
+—¡Desde allá seguramente estarán viéndonos también!
+
+Yo continuaba sumida en la penumbra del puente, silenciosa, observadora, solitaria, encerrada dentro del ángulo que formaban juntas dos barcas salvavidas. Desde mi altura, contemplando el espectáculo, pensaba en aquella mañana que recordaba apenas vagamente, cuando pequeñita, con mis bucles a la espalda y mis mediecitas cortas, había tomado junto con Papá el vapor que nos condujo a Europa. A la vista del mar, había sentido de pronto el terror de lo desconocido, y al embarcarme, había agarrado muy asustada la mano de mi aya, aquella mulata indolente y soñadora, que me cuidó siempre, desde el día de mi nacimiento con cariños maternales, que a ti también llegó a cuidarte algunas veces, y que murió en París ¿te acuerdas? víctima de las inclemencias del invierno...
+
+Con los ojos muy fijos en las luces crecientes de Macuto, evocaba ahora con dificultad la fisonomía fina y alargada de tío Pancho, el hermano mayor de Papá, quien había ido hasta el vapor a despedirnos y me había contado que la caldera era un infierno en donde los maquinistas, que eran unos demonios, metían a los niños desobedientes que se subían a las barandillas de cubierta... Recordaba cómo luego me había besado muchas veces, y cómo, por fin, sin decir nada había vuelto a ponerme en el suelo, y me había regalado un paquete de bombones, y una caja de cartón en donde dormía una muñeca rubia vestida de azul... De todo esto hacía ya doce años... ¡ah!... ¡doce años!... De los tres viajeros de aquella mañana regresaba yo sola... ¿Estaría allí al día siguiente tío Pancho para recibirme?... Tal vez no. Sin embargo, mi llegada se había avisado ya por cable y alguien me esperaría sin duda... ¿pero quién?... ¿quién sería?
+
+Macuto volvió a esconderse como había aparecido tras un brusco recodo de la costa y a poco el vapor comenzó a detenerse lentamente frente a la bahía que forma el puerto de La Guaira. Antes de echar el ancla, cabeceó unos minutos, se detuvo indolente y cobijado por la inmensidad de las montañas consteladas de luces, en el ambiente tibio parecía descansar por fin de su correr incesante.
+
+Como te decía, Cristina, en las llegadas hay siempre un misterio triste. Cuando un vapor se detiene, después de haber caminado mucho, parece que con él se detuvieran también todos nuestros ensueños y que callasen todos nuestros ideales. El suave deslizarse de algo que nos conduce es muy propicio a la fecundidad del espíritu. ¿Por qué?... ¿será tal vez que el alma al sentirse correr sin que los pies se muevan sueña quizás en que se va volando muy lejos de la tierra desligada por completo de toda materia?... No sé; pero recuerdo muy bien que aquella noche, detenido ya el vapor frente a La Guaira, me dormí prisionera y triste como si en el espíritu me hubiesen cortado una cosecha de alas.
+
+Me desperté al día siguiente cuando el vapor arrancaba a andar para atracar en el muelle. La alegría de la mañana parecía entrar a raudales dentro de un rayito de sol, que se quebraba en el cristal del ventanillo e inundaba de reflejos todo mi camarote. No bien abrí los ojos lo miré un instante y como si al deslumbrarme las pupilas, hubiese desvanecido también en mi alma todas las melancolías de la víspera, alegre, con la alegría solar de la mañana y con la curiosidad de los paisajes nuevos, corrí a asomarme al ojo del ventanillo. Al lento caminar del vapor el panorama se deslizaba por él muy suavemente. Había oído ponderar muchas veces la fealdad del pueblo de La Guaira. Dada esta predisposición, su vista me sorprendió agradablemente aquella mañana, como sorprende la sonrisa en un rostro que creíamos desconocido y que resulta ser el de un amigo de la infancia. Ante mis ojos, Cristina, justo a orillas del mar se alzaba bruscamente una gran montaña amarilla y estéril, pero florecida de casitas de todos los colores, que parecían trepar y escalonarse por los ribazos y las rocas con la audacia pastoril de un rebaño de cabras. La vegetación surgía a veces como un capricho entre aquellas casitas que sabían colgarse tan atrevidamente sobre los barrancos y que tenían la ingenuidad y la inverosímil apariencia de aquellas otras cabañitas de cartón con que sembraban las Madres por Navidad el nacimiento del Colegio. Su vista despertó en mi alma el inocente regocijo de los villancicos que anunciaban todos los años la alegría sonora de las vacaciones pascuales. Pensé con gran placer en que ahora también iba a abandonar la monotonía de a bordo por la fresca sombra de los árboles y por el libre corretear sobre la tierra firme. Sentí de pronto la curiosidad inmensa y feliz de aquel a quien esperan grandes sorpresas, y mientras que del lado de afuera, entre chirriar de grúas y de poleas se iniciaba el trabajo bullicioso del desembarque, yo, dentro de mi camarote, ávida de estar también sobre cubierta comencé a arreglarme y a vestirme febrilmente.
+
+Recuerdo que acababa de poner en orden todos mis objetos y que estaba cogiendo el sombrero, cuando oí la voz de la señora Ramírez, que decía con sus indolentes y musicales inflexiones de criolla:
+
+—¡Por aquí, por aquí! ¡Ya debe estar vestida! ¡María Eugenia! ¡María Eugenia! ¡Tu tío!
+
+Al oír estas mágicas palabras me precipité fuera del camarote, y en el estrecho corredor de salida pude ver, cómo de espaldas a la luz avanzaba también hacia mí la figura alta y algo encorvada de un señor vestido de dril blanco. Al mirarle venir, me sacudió otra vez la emoción intensa de la víspera, pensé en papá, sentí renacer de pronto toda mi primera infancia, y emocionada, llorosa, corrí hacia el que venía, tendiéndole los brazos y llamándole en un grito de alegría:
+
+—¡Ah! ¡Tío Pancho! ¡Tío Panchito!
+
+El me estrechó afectuosamente contra su pechera blanca mientras contestaba gangoso y lento:
+
+—No soy Pancho. Soy Eduardo, tu tío Eduardo, ¿no te acuerdas de mí?
+
+Y tomándome suavemente del brazo me condujo fuera del corredor hacia la claridad de cubierta.
+
+Mi emoción del principio se había disipado bruscamente al darme cuenta de aquel desagradable *quid pro quo*. La impresión producida por la figura de mi tío, vista a la clara luz del sol, acabó de disgustarme por completo. Aquella impresión, Cristina, hablándote con entera franqueza, era la más desastrosa que pudo jamás producir persona alguna ante los ojos de otra.
+
+En primer lugar te diré que la fisonomía de mi tío y tutor Eduardo Aguirre, me era absolutamente desconocida. En los tiempos de mi infancia este hermano de Mamá acostumbraba vivir con su familia en un lugar algo alejado de Caracas, y si alguna vez le vi, no logró impresionarme, pues que jamás catalogué su fisonomía entre aquella lejana colección de rostros que había conservado siempre en mi memoria, aunque confusos y borrosos, algo así, como retratos que han sido expuestos mucho tiempo al resol.
+
+No obstante, sin conocer a tío Eduardo de vista, le conocía muchísimo por referencias; eso sí, Papá le nombraba con frecuencia. Todos los meses llegaban cartas de tío. Eduardo. Aún me parece ver a Papá cuando las recibía. Antes de abrirlas, volvía y revolvía el sobre entre sus manos, con aquel gesto elegante y displicente que solían tener las puntas afiladas de sus dedos largos. Dichas cartas debían preocuparle siempre, porque después de leerlas se quedaba largo rato sin hablar y estaba mustio y pensativo. A veces mientras se decidía a rasgar el sobre, me veía, y como si quisiera desahogarse en una semi-confidencia musitaba quedo:
+
+—¡Del imbécil de Eduardo!
+
+Otras veces, tiraba la carta sin abrir sobre una mesa como se tiran las barajas cuando se ha perdido un turno, y entonces, por variar sin duda de vocabulario, expresando no obstante la misma idea se hacía a sí mismo esta pregunta:
+
+—¿Qué me dirá hoy el mentecato de Eduardo?
+
+Siempre había atribuido a contrariedades de dinero aquella preocupación que dejaba en Papá la lectura de las cartas, y a la misma causa atribuía también sus calificativos a tío Eduardo que era el administrador de sus bienes. Sin embargo, aquella mañana de mi llegada, no bien salí a cubierta y pude a plena luz, echar una ojeada crítica sobre la persona de mi tío, adquirí inmediatamente la certeza de que Papá debía tener profunda razón al emitir mensualmente aquellos juicios breves y terminantes.
+
+Pero como me parece de interés para lo sucesivo el describirte en detalles a tío Eduardo, es decir, a este tío Eduardo de mi primera impresión, voy a esbozártelo brevemente tal cual lo vi aquella mañana en la cubierta del Arnús.
+
+Figúrate que a la corta distancia con que suele dialogarse a bordo, junto a una franja de sol, y un rollo de cuerdas, le tenía frente a mí, apoyado contra una baranda, flaco, cetrino, encorvado, palidísimo, con bigotes lacios y con aspecto de persona enferma y triste. He sabido luego que las fiebres palúdicas le minaron durante su juventud y que ahora padece de no sé qué enfermedad del hígado. El vestido de dril blanco le caía sobre el cuerpo flojo y desgarbado como si no hubiese sido hecho para él, lo cual daba un aspecto marcadísimo de indolencia y descuido. Hablaba, y al hablar accionaba hacia adentro con unos movimientos enterizos, horriblemente desairados, que no guardaban compás ni relación ninguna con lo que iba diciendo la voz, una voz, Cristina, que además de ser nasal tenía un acento cantador, monótono, desabridísimo. Yo le miraba extrañada y mientras exclamaba a gritos mentalmente:
+
+—¡Ah! ¡Qué feo!
+
+Procuraba esconder tras una amable sonrisa aquella breve impresión o sentencia crítica tan poco halagüeña para quien la producía. Y con el objeto de disimular aún mejor, comencé a informarme de pronto por toda la familia. Le pregunté por Abuelita, tía Clara, su mujer, y sus hijos. Pero era inútil. Mi amable interrogatorio resultaba puramente maquinal. Mi pensamiento andaba tras de mis ojos, y mis ojos insaciables no se cansaban de escudriñarle de arriba abajo, mientras que en mis oídos, llenos ahora de verdad y de vida, parecían resonar de nuevo las palabras de Papá: «El imbécil de Eduardo»... «El mentecato de Eduardo»...
+
+Él, en su charla, desairada y sin vida, apoyado de espaldas en la baranda y con el rollo de cuerdas a sus pies, me dijo que todos en la familia deseaban muchísimo verme; que con el solo objeto de recibirme se había venido de Caracas desde la víspera en la mañana por estar anunciado el vapor para ese mismo día en la tarde; que por lo tanto, aquella noche había dormido en Macuto; que desde allí había visto pasar el vapor a eso de las siete; que de un momento a otro deberían llegar al muelle su mujer y sus cuatro hijos, los cuales habían salido en automóvil de Caracas hacía ya más de una hora; que era probable que por su lado viniese también tío Pancho Alonso, porque algo le había oído decir sobre el particular; que teniendo ciertos asuntos urgentes que despachar en La Guaira le parecía mejor el que almorzásemos todos juntos en Macuto; que como yo vería, Macuto era fresco, alegre y muy bonito; y que, finalmente, luego de almorzar subiríamos a Caracas donde me esperaban Abuelita y tía Clara  consumidas de impaciencia.
+
+Y mientras esto decía era cuando yo lo miraba con aquella amable sonrisa, juzgándole feo, desairado y mal vestido. A pesar del gran embuste de la sonrisa, algo debía reflejar mi semblante porque de pronto él dijo:
+
+—Te vine a recibir así... ya ves... porque aquí no se puede andar sino vestido de blanco, ¡hace un calor! Y desde ahora te advierto que La Guaira te va a hacer muy mal efecto. Es horrible: unas calles angostísimas, mal empedradas, mucho sol, mucho calor, y... –añadió con misterio bajando la voz– ¡muchos negros! ¡ah! ¡es horrible!
+
+Yo contestaba con la amable sonrisa petrificada en los labios:
+
+—No importa, tío, no importa. Como no vamos a estar sino de paso ¡qué más da!
+
+Pero te aseguro, Cristina, que si nos hubiésemos hallado en el Palacio de la Verdad, donde es fama que pueden expresarse los más íntimos pensamientos sin tomar en consideración este exagerado respeto que en la vida real profesamos al amor propio ajeno, yo habría contestado:
+
+—Es muy probable que La Guaira sea tan fea como dices, tío Eduardo, y sin embargo, estoy cierta de que su fealdad no es nada comparada con la tuya. Sí; La Guaira debe tener la fealdad venerable y discreta de las cosas inmóviles; y es segurísimo que ella no acciona hacia adentro, ni se viste de flojo, ni tiene bigotes lacios, ni habla por la nariz. Mientras que tú sí, tío Eduardo, desgraciadamente tú accionas, hablas, te vistes, y por consiguiente, tu fealdad activa se prodiga y se multiplica hasta lo infame en cada uno de tus movimientos.
+
+Pero naturalmente que en lugar de decir esta sarta de inconveniencias, dije que me parecía admirable el proyecto de irnos a almorzar a Macuto; que deseaba mucho el que nos permitiesen desembarcar pronto; que habíamos hecho un viaje magnífico; que las noches de luna en alta mar eran una maravilla, que el invierno en Europa se anunciaba muy frío, y que en París se usaban las faldas cada día más cortas.
+
+Deseoso de complacerme en lo de bajar a tierra, tío Eduardo se fue a activar los trámites del desembarco, y yo, mientras esperaba, solitaria y recluida en un rincón de cubierta, como la víspera en la tarde, ahora también me di a contemplar el panorama grandioso de la montaña, el mar, las chalupas corredoras, las velas lejanas, y muy cerca de mí a un costado del vapor el movimiento humano por el puerto.
+
+Pero de pronto, cuando más absorta me hallaba, oí que me llamaban varias voces alegres y sonoras. Volví la cabeza para atender al llamamiento y vi que las voces salían de una colección de fisonomías frescas, bonitas y sonrientes que venían a mí precedidas de tío Eduardo. Agradeciendo la alegría del saludo corrí hacia el grupo a fin de corresponder al bullicio de las voces con un bullicio de abrazos. Pero tío Eduardo juzgó prudente dar al encuentro cierto barniz de ceremonia, y deteniendo mi impulso, con un ademán desairadísimo de su mano izquierda, dijo:
+
+—Espera, que voy a presentártelos. –Y fue señalando así, por orden de edad:
+
+—María Antonia.
+
+—Genaro Eduardo.
+
+—Manuel Ramón.
+
+—Cecilia Margarita.
+
+—Pedro José.
+
+—Y... ¡María Eugenia!... –añadió señalándome a mí.
+
+Yo los abracé entonces a todos ordenadamente, pensando si aquella obsesión o manía por los nombres dobles, sería cosa de mi familia nada más, si se extendería también por Venezuela entera, o si traspasando las fronteras invadiría todo el continente americano; gracias a lo cual durante un segundo entre besos y abrazos evoqué muy claramente el mapa de Sur América con su forma alargada de jamón.
+
+Como Papá no nombraba jamás a la familia de tío Eduardo, ni yo había visto nunca sus retratos, no bien hube repartido los ordenados abrazos, sentí que en mi cabeza se formaba una ensalada de caras y de nombres sueltos imposibles de combinar y colocar después en sus respectivos sitios. No obstante, en honor de la verdad, Cristina, debo confesarte que aquella ensalada de tío Eduardo no estaba nada mal. La edad de mis cuatro primos es de: dieciocho, dieciséis, catorce, y trece años, respectivamente. En aquel instante, animados y decidores, me hablaban todos a la vez y como al hablar sonreían alegremente con unos dientes muy blancos y unos ojos muy negros, yo me puse de muy buen humor y también saqué a relucir toda mi colección de amabilidades y sonrisas.
 
 
-Después de navegar dieciocho días, una tarde serena, bajo la media luz del
-más inverosímil de los crepúsculos, entramos por fin en aguas de Venezuela.
- Al saber la noticia, llena de sensibilidad y de íntima emoción, para sentir
-y ver bien desde lo alto ese espectáculo triunfante que es llegar a tierra, escon­
-dida de todos, me fui a sentar en mi elevado puente solitario.
- Siempre recordaré aquella tarde.
- Hay instantes de la vida, Cristina, en que el espíritu parece desmateriali­
-zarse por completo, y lo sentimos erguirse en nosotros exaltado y sublime,
-como un vidente que nos hablara de cosas desconocidas. Experimentamos
-entonces una santa resignación por los dolores futuros, y sentimos también
-en el alma ese melancólico florecer de las alegrías pasadas, mucho más tristes
-que las tristezas, porque son en nuestro recuerdo como cadáveres de cuerpo
-presente que no nos decidimos a enterrar nunca . . . ¿verdad que esto lo has
-experimentado también tú algunas veces? . . . ¿no lo has sentido nunca oyen­
-do música, o mirando un paisaje en la sensibilidad infinita de un crepúsculo?...
-Aquella tarde, sentada en el puente, perdidos los ojos por el horizonte y los
-celajes, me pareció que desde lo alto de una atalaya miraba mi vida entera, la
-pasada y la futura, y no sé por qué tuve un gran presentimiento de tristeza.
- El vapor caminaba lentamente hacia unas luces que, bajo el tenue cendal
-de las nubes, se confundían a lo lejos con las estrellas apenas encendidas en el
-cielo. Poco a poco, las prendidas sefiuelas comenzaron a multiplicarse y a
-crecer, como si Venus aquella tarde hubiera querido prodigarse generosamente
-sobre el mar. Luego, imprecisos, esfumados en la penumbra y en la niebla
-fueron separándose enteramente del cielo los bloques oscuros de las montañas.
-Las luces alegres, brillantes, titilaban arriba, abajo, sembradas en aquel cielo
-profundo de los montes cada vez más familiares, más hospitalarios, más abier­
-tos de brazos al vapor, hasta que de repente, del lado izquierdo, como una
-iluminación fantástica, se encendió todo el mar, al pie de la montaña. Los
-pasajeros, apoyados en la barandilla de cubierta, bajo mi puente de observa­
-ción, con la alegría que inspira a los navegantes la próxima hospitalidad del
-puerto, empezaron a agitarse con una inmensa alegría llena de voces y de risas.
- Porque aquella iluminación la formaban las luces de Macuto, y Macuto,
-Cristina, es nuestra playa elegante, nuestro balneario de moda, es como si
-dijéramos el Deauville o el San Sebastián de Venezuela.
- El vapor, todo encendido también, al igual de un galán que paseara la calle,
-caminando de costado, se acercaba más y más hacia las luces. Ellas, en la
-alegría de su fiesta rutilaban y eran ya como mil voces amigas que nos llama­
-ran a gritos desde tierra.
- Los venezolanos llenos de entusiasmo, comenzaron a opinar:
- ¡Desde allá seguramente estarán viéndonos también!
- Yo continuaba sumida en la penumbra del puente, silenciosa, observadora,
-solitaria, encerrada dentro del ángulo que formaban juntas dos barcas salva­
-vidas. Desde mi altura, contemplando el espectáculo, pensaba en aquella
-mañana que recordaba apenas vagamente, cuando pequeñita, con mis bucles
-a la espalda y mis mediecitas cortas, había tomado junto con Papá el vapor
-que nos condujo a Europa. A la vista del mar, había sentido de pronto el
-terror de lo desconocido, y al embarcarme, había agarrado muy asustada la
-mano de mi aya, aquella mulata indolente y soñadora, que me cuidó siempre,
-desde el día de mi nacimiento con cariños maternales, que a ti también llegó a
-cuidarte algunas veces, y que murió en París ¿te acuerdas? víctima de las
-inclemencias del invierno . . .
- Con los ojos muy fijos en las luces crecientes de Macuto, evocaba ahora
-con dificultad la fisonomía fina y alargada de tío Pancho, el hermano mayor
-de Papá, quien había ido hasta el vapor a despedirnos y me había contado
-que la caldera era un infierno en donde los maquinistas, que eran unos demo­
-nios, metían a los niños desobedientes que se subían a las barandillas de
-cubierta . . . Recordaba cómo luego me había besado muchas veces, y cómo,
-por fin, sin decir nada había vuelto a ponerme en el suelo, y me había rega­
-lado un paquete de bombones, y una caja de cartón en donde dormía una
-muñeca rubia vestida de azul . . . De todo esto hacía ya doce años . . . ¡ah! . . .
-¡doce años! . . . De los tres viajeros de aquella mañana regresaba yo sola . . .
-¿Estaría allí al día siguiente tío Pancho para recibirme? . . . Tal vez no. Sin
-embargo, mi llegada se había avisado ya por cable y alguien me esperaría sin
-duda . . . ¿pero quién? . . . ¿quién sería?
- Macuto volvió a esconderse como había aparecido tras un brusco recodo
-de la costa y a poco el vapor comenzó a detenerse lentamente frente a la
-bahía que forma el puerto de La Guaira. Antes de echar el ancla, cabeceó
-unos minutos, se detuvo indolente y cobijado por la inmensidad de las mon­
-tañas consteladas de luces, en el ambiente tibio parecía descansar por fin de
-su correr incesante.
- Como te decía, Cristina, en las llegadas hay siempre un misterio triste.
-Cuando un vapor se detiene, después de haber caminado mucho, parece que
-con él se detuvieran también todos nuestros ensueños y que callasen todos
-nuestros ideales. El suave deslizarse de algo que nos conduce es muy propicio
-a la fecundidad del espíritu. ¿Por qué? . . . ¿será tal vez que el alma al sen­
-tirse correr sin que los pies se muevan sueña quizás en que se va volando muy
-lejos de la tierra desligada por completo de toda materia? . . . No sé; pero
-recuerdo muy bien que aquella noche, detenido ya el vapor frente a La Guaira,
- me dormí prisionera y triste como si en el espíritu me hubiesen cortado una
-cosecha de alas.
- Me desperté al día siguiente cuando el vapor arrancaba a andar para atracar
-en el muelle. La alegría de la mañana parecía entrar a raudales dentro de un
-rayito de sol, que se quebraba en el cristal del ventanillo e inundaba de refle­
-jos todo mi camarote. No bien abrí los ojos lo miré un instante y como si al
-deslumbrarme las pupilas, hubiese desvanecido también en mi alma todas las
-melancolías de la víspera, alegre, con la alegría solar de la mañana y con la
-curiosidad de los paisajes nuevos, corrí a asomarme al ojo del ventanillo. Al
-lento caminar del vapor el panorama se deslizaba por él muy suavemente.
-Había oído ponderar muchas veces la fealdad del pueblo de La Guaira. Dada
-esta predisposición, su vista me sorprendió agradablemente aquella mañana,
-como sorprende la sonrisa en un rostro que creíamos desconocido y que resul­
-ta ser el de un amigo de la infancia. Ante mis ojos, Cristina, justo a orillas
-del mar se alzaba bruscamente una gran montaña amarilla y estéril, pero
-florecida de casitas de todos los colores, que parecían trepar y escalonarse por
-los ribazos y las rocas con la audacia pastoril de un rebaño de cabras. La
-vegetación surgía a veces como un capricho entre aquellas casitas que sabían
-colgarse tan atrevidamente sobre los barrancos y que tenían la ingenuidad y
-la inverosímil apariencia de aquellas otras cabañitas de cartón con que
-sembraban las Madres por Navidad el nacimiento del Colegio. Su vista des­
-pertó en mi alma el inocente regocijo de los villancicos que anunciaban todos
-los años la alegría sonora de las vacaciones pascuales. Pensé con gran placer
-en que ahora también iba a abandonar la monotonía de a bordo por la fresca
-sombra de los árboles y por el libre corretear sobre la tierra firme. Sentí
-de pronto la curiosidad inmensa y feliz de aquel a quien esperan grandes
-sorpresas, y mientras que del lado de afuera, entre chirriar de grúas y de poleas
-se iniciaba el trabajo bullicioso del desembarque, yo, dentro de mi camarote,
-ávida de estar también sobre cubierta comencé a arreglarme y a vestirme
-febrilmente.
- Recuerdo que acababa de poner en orden todos mis objetos y que estaba
-cogiendo el sombrero, cuando oí la voz de la señora Ramírez, que decía con
-sus indolentes y musicales inflexiones de criolla:
- ¡Por aquí, por aquí! ¡ya debe estar vestida! ¡María Eugenia! ¡María
-Eugenia! ¡tu tío!
- Al oír estas mágicas palabras me precipité fuera del camarote, y en el estre­
-cho corredor de salida pude ver, cómo de espaldas a la luz avanzaba también
-hacia mí la figura alta y algo encorvada de un señor vestido de dril blanco.
-Al mirarle venir, me sacudió otra vez la emoción intensa de la víspera, pensé
-en papá, sentí renacer de pronto toda mi primera infancia, y emocionada,
-llorosa, corrí hacia el que venía, tendiéndole los brazos y llamándole en un
-grito de alegría:
- ¡Ah! ¡tío Pancho! ¡tío Panchito!
- El me estrechó afectuosamente contra su pechera blanca mientras contesta­
-ba gangoso y lento:
- No soy Pancho. Soy Eduardo, tu tío Eduardo, ¿no te acuerdas de mí?
- Y tomándome suavemente del brazo me condujo fuera del corredor hacia
-la claridad de cubierta.
- Mi emoción del principio se había disipado bruscamente al darme cuenta
-de aquel desagradable quid pro quo. La impresión producida por la figura
-de mi tío, vista a la clara luz del sol, acabó de disgustarme por completo.
-Aquella impresión, Cristina, hablándote con entera franqueza, era la más
-desastrosa que pudo jamás producir persona alguna ante los ojos de otra.
- En primer lugar te diré que la fisonomía, de mi tío y tutor Eduardo Aguirre,
-me era absolutamente desconocida. En los tiempos de mi infancia este herma­
-no de Mamá acostumbraba vivir con su familia en un lugar algo alejado de
-Caracas, y si alguna vez le vi, no logró impresionarme, pues que jamás cata­
-logué su fisonomía entre aquella lejana colección de rostros que había con­
-servado siempre en mi memoria, aunque confusos y borrosos, algo así, como
-retratos que han sido expuestos mucho tiempo al resol.
- No obstante, sin conocer a tío Eduardo de vista, le conocía muchísimo por
-referencias; eso sí, papá le nombraba con frecuencia. Todos los meses llega­
-ban cartas de tío Eduardo. Aún me parece ver a papá cuando las recibía.
-Antes de abrirlas, volvía y revolvía el sobre entre sus manos, con aquel gesto
-elegante y displicente que solían tener las puntas afiladas de sus dedos
-largos. Dichas cartas debían preocuparle siempre, porque después de leerlas
-se quedaba largo rato sin hablar y estaba mustio y pensativo. A veces mien­
-tras se decidía a rasgar el sobre, me veía, y como si quisiera desahogarse en
-una semi-confidencia musitaba quedo:
- ¡Del imbécil de Eduardo!
- Otras veces, tiraba la carta sin abrir sobre una mesa como se tiran las bara­
-jas cuando se ha perdido un turno, y entonces, por variar sin duda de voca­
-bulario, expresando no obstante la misma idea se hacía a sí mismo esta
-pregunta:
- ¿Qué me dirá hoy el mentecato de Eduardo?
- Siempre había atribuido a contrariedades de dinero aquella preocupación
-que dejaba en papá la lectura de las cartas, y a la misma causa atribuía también
-sus calificativos a tío Eduardo que era el administrador de sus bienes. Sin
-embargo, aquella mañana de mi llegada, no bien salí a cubierta y pude a plena
-luz, echar una ojeada crítica sobre la persona de mi tío, adquirí inmediata­
-mente la certeza de que papá debía tener profunda razón al emitir mensual­
-mente aquellos juicios breves y terminantes.
- Pero como me parece de interés para lo sucesivo el describirte en detalles a
-tío Eduardo, es decir, a este tío Eduardo de mi primera impresión, voy a
-esbozártelo brevemente tal cual lo vi aquella mañana en la cubierta del Arnús.
- Figúrate que a la corta distancia con que suele dialogarse a bordo, junto
-a una franja de sol, y un rollo de cuerdas, le tenía frente a mí, apoyado contra
- una baranda, flaco, cetrino, encorvado, palidísimo, con bigotes lacios y con
-aspecto de persona enferma y triste. He sabido luego que las fiebres palúdicas
-le minaron durante su juventud y que ahora padece de no sé qué enfermedad
-del hígado. El vestido de dril blanco le caía sobre el cuerpo, flojo y desgarbado
-como si no hubiese sido hecho para él, lo cual daba un aspecto marcadísimo
-de indolencia y descuido. Hablaba, y al hablar accionaba hacia adentro con
-unos movimientos enterizos, horriblemente desairados, que no guardaban
-compás ni relación ninguna con lo que iba diciendo la voz, una voz, Cristina,
-que además de ser nasal tenía un acento cantador, monótono, desabridísimo.
-Yo le miraba extrañada y mientras exclamaba a gritos mentalmente:
- ¡Ah! ¡Qué feo!
- Procuraba esconder tras una amable sonrisa aquella breve impresión o
-sentencia crítica tan poco halagüeña para quien la producía. Y con el objeto
-de disimular aún mejor, comencé a informarme de pronto por toda la fami­
-lia. Le pregunté por Abuelita, tía Clara, su mujer, y sus hijos. Pero era
-inútil. Mi amable interrogatorio resultaba puramente maquinal. Mi pensa­
-miento andaba tras de mis ojos, y mis ojos insaciables no se cansaban de escu­
-driñarle de arriba abajo, mientras que en mis oídos, llenos ahora de verdad
-y de vida, parecían resonar de nuevo las palabras de Papá: «El imbécil de
-Eduardo» . . . «El mentecato de Eduardo» . . .
- El, en su charla, desairada y sin vida, apoyado de espaldas en la baranda y
-con el rollo de cuerdas a sus pies, me dijo que todos en la familia deseaban
-muchísimo verme; que con el solo objeto de recibirme se había venido de
-Caracas desde la víspera en la mañana por estar anunciado el vapor para ese
-mismo día en la tarde; que por lo tanto, aquella noche había dormido en
-Macuto; que desde allí había visto pasar el vapor a eso de las siete; que de
-un momento a otro deberían llegar al muelle su mujer y sus cuatro hijos, los
-cuales habían salido en automóvil de Caracas hacía ya más de una hora; que
-era probable que por su lado viniese también tío Pancho Alonso, porque
-algo le había oído decir sobre el particular; que teniendo ciertos asuntos
-urgentes que despachar en La Guaira le parecía mejor el que almorzásemos
-todos juntos en Macuto; que como yo vería, Macuto era fresco, alegre y muy
-bonito; y que, finalmente, luego de almorzar subiríamos a Caracas donde me
-esperaban Abuelita y tía Clara consumidas de impaciencia.
- Y mientras esto decía era cuando yo lo miraba con aquella amable sonrisa,
-juzgándole feo, desairado y mal vestido. A pesar del gran embuste de la
-sonrisa, algo debía reflejar mi semblante porque de pronto él dijo:
- Te vine a recibir a s í. . . ya ves . .. porque aquí no se puede andar sino
-vestido de blanco, ¡hace un calor! Y desde ahora te advierto que La Guaira
-te va a hacer muy mal efecto. Es horrible: unas calles angostísimas, mal em­
-pedradas, mucho sol, mucho calor, y . . . añadió con misterio bajando la
-voz ¡muchos negros! ¡ah! ¡es horrible!
- Yo contestaba con la amable sonrisa petrificada en los labios:
- No importa, tío, no importa. Como no vamos a estar sino de paso ¡qué
-más da!
- Pero te aseguro, Cristina, que si nos hubiésemos hallado en el Palacio de
-la Verdad, donde es fama que pueden expresarse los más íntimos pensamien­
-tos sin tomar en consideración este exagerado respeto que en la vida real pro­
-fesamos al amor propio ajeno, yo habría contestado:
- Es muy probable que La Guaira sea tan fea como dices, tío Eduardo, y
-sin embargo, estoy cierta de que su fealdad no es nada comparada con la tuya.
-Sí; La Guaira debe tener la fealdad venerable y discreta de las cosas inmó­
-viles; y es segurísimo que ella no acciona hacia adentro, ni se viste dei flojo, ni
-tiene bigotes lacios, ni habla por la nariz. Mientras que tú sí, tío Eduardo,
-desgraciadamente tú accionas, hablas, te vistes, y por consiguiente, tu fealdad
-activa se prodiga y se multiplica hasta lo infame en cada uno de tus movi­
-mientos.
- Pero naturalmente que en lugar de decir esta sarta de inconveniencias, dije
-que me parecía admirable el proyecto de irnos a almorzar a Macuto; que
-deseaba mucho el que nos permitiesen desembarcar pronto; que habíamos
-hecho un viaje magnífico; que las noches de luna en alta mar eran una mara­
-villa, que el invierno en Europa se anunciaba muy frío, y que en París se
-usaban las faldas cada día más cortas.
- Deseoso de complacerme en lo de bajar a tierra, tío Eduardo se fue a
-activar los trámites del desembarco, y yo, mientras esperaba, solitaria y
-recluida en un rincón de cubierta, como la víspera en la tarde, ahora también
-me di a contemplar el panorama grandioso de la montaña, el mar, las chalupas
-corredoras, las velas lejanas, y muy cerca de mí a un costado del vapor el
-movimiento humano por el puerto.
- Pero de pronto, cuando más absorta me hallaba, oí que me llamaban varias
-voces alegres y sonoras. Volví la cabeza para atender al llamamiento y vi
-que las voces salían de una colección de fisonomías frescas, bonitas y son­
-rientes que venían a mí precedidas de tío Eduardo. Agradeciendo la alegría
-del saludo corrí hacia el grupo a fin de corresponder al bullicio de las voces
-con un bullicio de abrazos. Pero tío Eduardo juzgó prudente dar al encuentro
-cierto barniz de ceremonia, y deteniendo mi impulso, con un ademán desaira­
-dísimo de su mano izquierda, dijo:
- Espera, que voy a presentártelos. Y fue señalando así, por orden de
-edad:
- María Antonia.
- Genaro Eduardo.
- Manuel Ramón.
- Cecilia Margarita.
- Pedro José.
- Y . . . ¡María Eugenia! . . . añadió señalándome a mí.
- Yo los abracé entonces a todos ordenadamente, pensando si aquella obse­
-sión o manía por los nombres dobles, sería cosa de mi familia nada más, si se
- extendería también por Venezuela entera, o si traspasando las fronteras inva­
-diría todo el continente americano; gracias a lo cual durante un segundo entre
-besos y abrazos evoqué muy claramente el mapa de Sur América con su forma
-alargada de jamón.
- Como papá no nombraba jamás a la familia de tío Eduardo, ni yo había
-visto nunca sus retratos, no bien hube repartido los ordenados abrazos, sentí
-que en mi cabeza se formaba una ensalada de caras y de nombres sueltos
-Imposibles de combinar y colocar después en sus respectivos sitios. No obs­
-tante, en honor de la verdad, Cristina, debo confesarte que aquella ensalada
-de tío Eduardo no estaba nada mal. La edad de mis cuatro primos es de:
-dieciocho, dieciséis, catorce, y trece años, respectivamente. En aquel instante, ani­
-mados y decidores, me hablaban todos a la vez y como al hablar sonreían alegre­
-mente con unos dientes muy blancos y unos ojos muy negros, yo me puse de
-muy buen humor y también saqué a relucir toda mi colección de amabilida­
-des y sonrisas.
  Pero debo advertirte, no vayas a confundir, que esto de la ensalada más
 o menos fresca, agradable y bien aderezada, no atañe sino a mis primos, o
 sea a las cuatro últimas combinaciones de la lista que he tenido la precau­
