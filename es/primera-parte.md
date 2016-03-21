@@ -4,380 +4,97 @@ UNA CARTA MUY LARGA DONDE LAS COSAS SE CUENTAN COMO EN LAS NOVELAS
 
 
 De María Eugenia Alonso
-a
-Cristina de Iturbe
+a Cristina de Iturbe
 
 
-¡Por fin te escribo, querida Cristina! No sé qué habrás pensado de mí. Cuando
-nos despedimos en la estación de Biarritz, recuerdo que te dije mientras te
-abrazaba llena de tristeza, de suspiros y de paquetes:
+¡Por fin te escribo, querida Cristina! No sé qué habrás pensado de mí. Cuando nos despedimos en la estación de Biarritz, recuerdo que te dije mientras te abrazaba llena de tristeza, de suspiros y de paquetes:
 
-> ¡Hasta pronto, pronto, prontísimo!
+—¡Hasta pronto, pronto, prontísimo!
 
-Me refería a una larga carta que pensaba escribirte de París y que empezaba ya a
-redactar en mi cabeza. Sin embargo, desde aquel día memorable han transcurrido
-ya más de cuatro meses y fuera de las postales no te he escrito una letra.
+Me refería a una larga carta que pensaba escribirte de París y que empezaba ya a redactar en mi cabeza. Sin embargo, desde aquel día memorable han transcurrido ya más de cuatro meses y fuera de las postales no te he escrito una letra.
 
-A ciencia cierta, no puedo decirte por qué no te escribí desde París, y
-muchísimo menos aún por qué no te escribí después, cuando radiante de optimismo
-y hecha una parisiense elegantísima, navegaba rumbo a Venezuela. Lo que sí voy a
-confesarte, porque lo sé y me consta, es que si desde aquí, desde Caracas, mi
-ciudad natal, no te había escrito todavía, aun cuando el tiempo me sobrara de un
-modo horrible, era única y exclusivamente, por pique y amor propio. Yo, que sé
-mentir bastante bien cuando hablo, no sé mentir cuando escribo, y como no quería
-por nada del mundo decirte la verdad, que me parecía muy humillante, había
-decidido callarme. Ahora me pa­ rece que la verdad a que me refiero no es
-humillante sino más bien pintoresca, interesante y algo medioeval. Por
-consiguiente he resuelto confesártela hoy a gritos si es que tú eres capaz de
-oír estos gritos que lanzan mis letras:
+A ciencia cierta, no puedo decirte por qué no te escribí desde París, y muchísimo menos aún por qué no te escribí después, cuando radiante de optimismo y hecha una parisiense elegantísima, navegaba rumbo a Venezuela. Lo que sí voy a confesarte, porque lo sé y me consta, es que si desde aquí, desde Caracas, mi ciudad natal, no te había escrito todavía, aun cuando el tiempo me sobrara de un modo horrible, era única y exclusivamente, por pique y amor propio. Yo, que sé mentir bastante bien cuando hablo, no sé mentir cuando escribo, y como no quería por nada del mundo decirte la verdad, que me parecía muy humillante, había decidido callarme. Ahora me parece que la verdad a que me refiero no es humillante sino más bien pintoresca, interesante y algo medioeval. Por consiguiente he resuelto confesártela hoy a gritos si es que tú eres capaz de oír estos gritos que lanzan mis letras:
 
-¡Ah! ¡Cristina, Cristina, lo que me fastidio!... Mira, por muchísimos esfuerzos
-de imaginación que tú hagas no podrás figurarte nunca lo que yo me fastidio
-desde hace un mes, encerrada dentro de esta casa de Abuelita que huele a jazmín,
-a tierra húmeda, a velas de cera, y a fricciones de Elliman's Embrocation.
-Bueno, el olor a cera viene de dos velas que Tía Clara tiene continuamente
-encendidas ante un Nazareno vestido de terciopelo morado, de una media vara de
-estatura, el cual desde los tiempos remotos de mi bisabuela camina con su cruz a
-cuestas dentro de una redoma de vidrio. El olor a Elliman's Embrocation es
-debido al reumatismo de Abuelita, que se fricciona todas las noches antes de
-acostarse. En cuanto al olor a jazmín con tierra húmeda, que es el más agradable
-de todos, viene del patio de entrada, que es amplio, cuadrado, sembrado de
-rosas, palmas, helechos, novios, y un gran jazminero que se explaya verde y
-espesísimo en su kiosco de alambre sobre el cual vive como un cielo estrellado
-de jazmines. Pero ¡ay! lo que yo me fastidio aspirando estos olores sueltos o
-combinados, mientras miro coser o escucho conversar a Abuelita y a tía Clara es
-una cosa inexplicable. Por delicadeza y por tacto, cuando estoy delante de ellas
-disimulo mi fastidio y entonces converso, me río, o enseño como perra sabia a
-Chispita, la falderilla lanuda, quien ha aprendido ya a sentarse con sus dos
-patitas delanteras dobladas con muchísima gracia, y quien, según he observado,
-dentro de este sistema de encierro en que nos tienen a ambas, sueña de continuo
-con la libertad y se fastidia tanto o más que yo.
+¡Ah! ¡Cristina, Cristina, lo que me fastidio!... Mira, por muchísimos esfuerzos de imaginación que tú hagas no podrás figurarte nunca lo que yo me fastidio desde hace un mes, encerrada dentro de esta casa de Abuelita que huele a jazmín, a tierra húmeda, a velas de cera, y a fricciones de *Elliman’s Embrocation*. Bueno, el olor a cera viene de dos velas que tía Clara tiene continuamente encendidas ante un Nazareno vestido de terciopelo morado, de una media vara de estatura, el cual desde los tiempos remotos de mi bisabuela camina con su cruz a cuestas dentro de una redoma de vidrio. El olor a *Elliman’s Embrocation* es debido al reumatismo de Abuelita, que se fricciona todas las noches antes de acostarse. En cuanto al olor a jazmín con tierra húmeda, que es el más agradable de todos, viene del patio de entrada, que es amplio, cuadrado, sembrado de rosas, palmas, helechos, novios, y un gran jazminero que se explaya verde y espesísimo en su kiosco de alambre sobre el cual vive como un cielo estrellado de jazmines. Pero ¡ay! lo que yo me fastidio aspirando estos olores sueltos o combinados, mientras miro coser o escucho conversar a Abuelita y a tía Clara es una cosa inexplicable. Por delicadeza y por tacto, cuando estoy delante de ellas disimulo mi fastidio y entonces converso, me río, o enseño como perra sabia a Chispita, la falderilla lanuda, quien ha aprendido ya a sentarse con sus dos patitas delanteras dobladas con muchísima gracia, y quien, según he observado, dentro de este sistema de encierro en que nos tienen a ambas, sueña de continuo con la libertad y se fastidia tanto o más que yo.
 
-Abuelita y tía Clara, que saben distinguir muy bien los hilos tramados de los
-zurcidos y de las randas, pero que no ven en absoluto estas cosas que se ocultan
-tras las apariencias, no conocen ni por asomos la cruel y estoica magnitud de mi
-aburrimiento. Abuelita tiene muy arraigado este principio falsísimo y pasado de
-moda:
+Abuelita y tía Clara, que saben distinguir muy bien los hilos tramados de los zurcidos y de las randas, pero que no ven en absoluto estas cosas que se ocultan tras las apariencias, no conocen ni por asomos la cruel y estoica magnitud de mi aburrimiento. Abuelita tiene muy arraigado este principio falsísimo y pasado de moda:
 
-> «Las personas que se fastidian es porque no son inteligentes».
+—«Las personas que se fastidian es porque no son inteligentes».
 
-Y claro, como mi inteligencia brilla de continuo y no es posible ponerla en tela
-de juicio, Abuelita deduce en consecuencia que yo me divierto a todas horas con
-relación a mi capacidad intelectual, es decir: muchísimo. Y yo por delicadeza se
-lo dejo creer.
+Y claro, como mi inteligencia brilla de continuo y no es posible ponerla en tela de juicio, Abuelita deduce en consecuencia que yo me divierto a todas horas con relación a mi capacidad intelectual, es decir: muchísimo. Y yo por delicadeza se lo dejo creer.
 
-¡Ah! cuántas veces he pensado en plena crisis de fastidio: «Si yo le contara
-esto a Cristina, me aliviaría muchísimo escribiendo». Pero durante un mes entero
-he vivido presa dentro de mi amor propio como dentro de las cuatro paredes
-viejas de esta casa. Quería que tú te imaginaras maravillas de mi existencia
-actual, y recluida en mi doble prisión callaba.
+¡Ah! cuántas veces he pensado en plena crisis de fastidio: «Si yo le contara esto a Cristina, me aliviaría muchísimo escribiendo». Pero durante un mes entero he vivido presa dentro de mi amor propio como dentro de las cuatro paredes viejas de esta casa. Quería que tú te imaginaras maravillas de mi existencia actual, y recluida en mi doble prisión callaba.
 
-Voy poniendo a un lado toda fantasía de amor propio, te escribo porque no puedo
-callarme más tiempo, y porque como te he dicho ya, he descubierto últimamente
-que esto de vivir tapiada siendo tan bonita como soy, lejos de ser humillante y
-vulgar parece por el contrario cosa de romance o leyenda de princesa cautiva. Y
-mira, sentada como estoy ahora ante la blanca hoja de papel, me siento tan
-encantada con la determinación y es tanto, tantísimo lo que deseo escribirte,
-que para hacerlo quisiera ya como dice el cantar «que la mar fuera de tinta y
-las playas de papel».
+Hoy, poniendo a un lado toda fantasía de amor propio, te escribo porque no puedo callarme más tiempo, y porque como te he dicho ya, he descubierto últimamente que esto de vivir tapiada siendo tan bonita como soy, lejos de ser humillante y vulgar parece por el contrario cosa de romance o leyenda de princesa cautiva. Y mira, sentada como estoy ahora ante la blanca hoja de papel, me siento tan encantada con la determinación y es tanto, tantísimo lo que deseo escribirte, que para hacerlo quisiera ya como dice el cantar «que la mar fuera de tinta y las playas de papel».
 
-Como sabes, Cristina, siempre he tenido bastante afición a las novelas.
+Como sabes, Cristina, siempre he tenido bastante afición a las novelas. También la tienes tú, y creo ahora que fue sin duda ninguna esta comunidad de gusto por el teatro y las novelas la que hizo que intimáramos tanto durante los meses de vacaciones, así como durante los meses de colegio nos hizo intimar mucho aquella otra comunidad de gusto en los estudios. Tú y yo éramos por lo visto unas niñas intelectuales y románticas, pero éramos también, por otro lado, exageradamente tímidas. He reflexionado algunas veces sobre este sentimiento de timidez y según creo ahora debimos de adquirirlo, a fuerza de ver reflejadas en los cristales de las ventanas y puertas del colegio nuestras frentes anchas descubiertas y rodeadas de aquel semicírculo negro formado por nuestro pobre pelo liso y tirantísimo. Como recordarás, este último requisito era indispensable, según la opinión de las Madres, al buen nombre de las niñas, que además de ser muy ordenadas, eran inteligentes y estudiosas como lo éramos nosotras dos. Yo llegué a adquirir la convicción de que el pelo tirante constituía realmente una gran superioridad moral, y, sin embargo, veía siempre con gran admiración las otras niñas cuyas cabezas «vacías por dentro» al decir de las Madres, tenían por fuera aquella agradable apariencia que les daban los rizos y las ondas usadas contra todo reglamento. A pesar de nuestra superioridad mental recuerdo que yo siempre me sentí en el fondo muy inferior a las del pelo flojo. Las heroínas de las novelas las colocaba también en este bando de las sienes cubiertas, el cual constituía a las claras, lo que las Madres llamaban con bastante desdén «el mundo». Nosotras, junto con las Madres, el Capellán del Colegio, las doce Hijas de María, los Santos del año Cristiano, el incienso, las casullas y los reclinatorios, pertenecíamos al otro bando. En realidad yo nunca tuve verdadero entusiasmo de partido. Aquel malvado «mundo» tan aborrecido y despreciado por las Madres, a pesar de su vil inferioridad, aparecía siempre ante mis ojos deslumbrante y lleno de prestigio. Nuestra superioridad moral resultaba para mí una especie de carga, y recuerdo que la llevé siempre llena de resignación y pensando con tristeza, que gracias a ella no desempeñaría en la vida más que papeles oscuros y secundarios.
 
-También la tienes tú, y creo ahora que fue sin duda ninguna esta comunidad de
-gusto por el teatro y las novelas la que hizo que intimáramos tanto durante los
-meses de vacaciones, así como durante los meses de colegio nos hizo intimar
-mucho aquella otra comunidad de gusto en los estudios. Tú y yo éramos por lo
-visto unas niñas intelectuales y románticas, pero éramos también, por otro lado,
-exageradamente tímidas. He reflexionado algunas veces sobre este sentimiento de
-timidez y según creo ahora debimos de adquirirlos, a fuerza de ver reflejadas en
-los cristales de las ventanas y puertas del colegio nuestras frentes anchas
-descubiertas y rodeadas de aquel semicírculo negro formado por nuestro pobre
-pelo liso y tirantísimo. Como recordarás, este último requisito era
-indispensable, según la opinión de las Madres, al buen nombre de las niñas, que
-además de ser muy ordenadas, eran inteligentes y estudiosas como lo éramos
-nosotras dos. Yo llegué a adquirir la convicción de que el pelo tirante
-constituía realmente una gran superioridad moral, y, sin embargo, veía siempre
-con gran admiración las otras niñas cuyas cabezas «vacías por dentro» al decir
-de las Madres, tenían por fuera aquella agradable apa­ riencia que las daban los
-rizos y las ondas usadas contra todo reglamento.  A pesar de nuestra
-superioridad mental recuerdo que yo siempre me sentí en el fondo muy inferior a
-las del pelo flojo. Las heroínas de las novelas las colocaba también en este
-bando de las sienes cubiertas, el cual constituía a las claras, lo que las
-Madres llamaban con bastante desdén «el mundo».  Nosotras, junto con las Madres,
-el Capellán del Colegio, las doce Hijas de María, los Santos del año Cristiano,
-el incienso, las casullas y los reclinatorios, pertenecíamos al otro bando. En
-realidad yo nunca tuve verdadero entusiasmo de partido. Aquel malvado «mundo»
-tan aborrecido y despreciado por las Madres, a pesar de su vil inferioridad,
-aparecía siempre ante mis ojos deslumbrante y lleno de prestigio. Nuestra
-superioridad moral resultaba para mí una especie de carga, y recuerdo que la
-llevé siempre llena de resignación y pensando con tristeza, que gracias a ella
-no desempeñaría en la vida más que papeles oscuros y secundarios.
+Lo que quiero explicarte ahora es que en estos cuatro meses he variado por completo de ideas. Ceo que me he pasado con armas y bagajes al abominable bando del mundo y siento que he adquirido en él una elevada graduación. Ya no me considero en absoluto personaje secundario, estoy bastante satisfecha de mí misma, me he declarado en huelga contra la timidez y la humildad, y tengo además la pretensión de creer que valgo un millón de veces más que todas las heroínas de las novelas que leíamos en verano tú y yo, las cuales, dicho sea entre paréntesis, me parece ahora que debían estar muy mal escritas.
+ 
+En estos cuatro meses, Cristina, he pasado por muchos ratos de tristeza, he tenido impresiones desagradables, revelaciones desesperantes y, sin embargo, a pesar de todo, siento un inmenso regocijo porque he visto desdoblarse de mí misma una personalidad nueva que yo no sospechaba y que me llena de satisfacción. Tú, yo, todos los que andando por el mundo tenemos algunas tristezas, somos héroes y heroínas en la propia novela de nuestra vida, que es más bonita y mil veces mejor que las novelas escritas.
 
- Lo que quiero explicarte ahora es que en estos cuatro meses he variado
-por completo de ideas. Creo que me he pasado con armas y bagajes al abo­
-minable bando del mundo y siento que he adquirido en él una elevada gra­
-duación. Ya no me considero en absoluto personaje secundario, estoy bas­
-tante satisfecha de mí misma, me he declarado en huelga contra la timidez y
-la humildad, y tengo además la pretensión de creer que valgo un millón de
-veces más que todas las heroínas de las novelas que leíamos en verano tú y
-yo, las cuales, dicho sea entre paréntesis, me parece ahora que debían estar
-muy mal escritas.
- En estos cuatro meses, Cristina, he pasado por muchos ratos de tristeza,
- he tenido impresiones desagradables, revelaciones desesperantes y, sin em­
-bargo, a pesar de todo, siento un inmenso regocijo porque he visto desdo­
-blarse de mí misma una personalidad nueva que yo no sospechaba y que me
-llena de satisfacción. Tú, yo, todos los que andando por el mundo tenemos
-algunas tristezas, somos héroes y heroínas en la propia novela de nuestra
-vida, que es más bonita y mil veces mejor que las novelas escritas.
- Es esta tesis la que voy a desarrollar ante tus ojos, relatándote minucio­
-samente y como en las auténticas novelas todo cuanto me ha ocurrido desde
-que dejé de verte en Biarritz. Estoy segura de que mi relato te interesará
-muchísimo. Además he descubierto últimamente que tengo mucho don de
-observación y gran facilidad para expresarme. Desgraciadamente estos dotes
-de nada me han servido hasta el presente. Algunas veces he tratado de poner­
-los en evidencia delante de tía Clara y Abuelita, pero ellas no han sabido
-apreciarlos. Tía Clara no se ha tomado siquiera la molestia de fijarse en ellos.
-En cuanto a Abuelita, que como es muy vieja, tiene unas ideas atrasadísimas,
-sí debe haberlos tomado en consideración porque ha dicho ya por dos veces
-que tengo la cabeza llena de cucarachas.
- Como puedes comprender ésta es una de las razones por las cuales me
-aburro en esta casa tan grande y tan triste, donde nadie me admira ni me
-comprende, y es esta necesidad de sentirme comprendida, lo que decidida­
-mente acabó de impulsarme a escribirte.
- Sé muy bien que tú sí vas a comprenderme. En cuanto a mí no siento
-reserva ni rubor alguno al hacerte mis más íntimas confidencias. Tienes
-ante mis ojos el dulce prestigio de lo que pasó para no volver más. Los secre­
-tos que a ti te diga no han de tener consecuencias desagradables en mi vida
-futura y, por consiguiente, sé desde ahora que jamás me arrepentiré de habér­
-telos dicho. Se parecerán en nuestro porvenir a los secretos que se llevan
-consigo los muertos. En cuanto al cariño tan grande que pongo para escri­
-bírtelos creo que tiene también cierto parecido con aquel tardío florecer de
-nuestra ternura, cuando pensamos en los que se fueron «para no volver».
+Es esta tesis la que voy a desarrollar ante tus ojos, relatándote minuciosamente y como en las auténticas novelas todo cuanto me ha ocurrido desde que dejé de verte en Biarritz. Estoy segura de que mi relato te interesará muchísimo. Además he descubierto últimamente que tengo mucho don de observación y gran facilidad para expresarme. Desgraciadamente estos dotes de nada me han servido hasta el presente. Algunas veces he tratado de ponerlos en evidencia delante de tía Clara y Abuelita, pero ellas no han sabido apreciarlos. Tía Clara no se ha tomado siquiera la molestia de fijarse en ellos. En cuanto a Abuelita, que como es muy vieja, tiene unas ideas atrasadísimas, sí debe haberlos tomado en consideración porque ha dicho ya por dos veces que tengo la cabeza llena de cucarachas.
+
+Como puedes comprender ésta es una de las razones por las cuales me aburro en esta casa tan grande y tan triste, donde nadie me admira ni me comprende, y es esta necesidad de sentirme comprendida, lo que decididamente acabó de impulsarme a escribirte.
+
+Sé muy bien que tú sí vas a comprenderme. En cuanto a mí no siento reserva ni rubor alguno al hacerte mis más íntimas confidencias. Tienes ante mis ojos el dulce prestigio de lo que pasó para no volver más. Los secretos que a ti te diga no han de tener consecuencias desagradables en mi vida futura y, por consiguiente, sé desde ahora que jamás me arrepentiré de habértelos dicho. Se parecerán en nuestro porvenir a los secretos que se llevan consigo los muertos. En cuanto al cariño tan grande que pongo para escribírtelos creo que tiene también cierto parecido con aquel tardío florecer de nuestra ternura, cuando pensamos en los que se fueron «para no volver».
 
 
+Te escribo en mi cuarto cuyas dos puertas he cerrado con llave. Mi cuarto es grande, claro, empapelado de azul celeste, y tiene una ventana con reja que da sobre el segundo patio de la casa. Del lado afuera de la ventana, muy pegadito a la reja, hay un naranjo, y más allá, en cada una de las otras esquinas, hay otros naranjos. Como yo he colocado mi escritorio y mi sillón muy cerca de mi ventana, mientras pienso echada atrás la cabeza contra el respaldo del sillón, o apoyada de codos sobre la blanca tabla del escritorio, estoy siempre mirando mi patio de los naranjos. Y es tanto lo que tengo pensado mirando hacia arriba, que ya conozco hasta el más mínimo detalle de la verde filigrana sobre el azul del cielo...
 
+Ahora, antes de comenzar mi relato, sin mirar naranjos, ni cielo, ni nada, he cerrado un instante los ojos, me he puesto sobre ellos las dos manos entrelazadas y muy claramente, durante unos segundos te he visto de nuevo, tal como dejé de verte allá en el andén de la estación de Biarritz: andando primero, corriendo después junto a la ventanilla de mi vagón que se alejaba, y luego tu mano, y por fin tu pañuelo que me decían a gritos: ¡Adiós!... ¡Adiós!...
+ 
+Recuerdo muy bien que cuando ya no pude verte más, me alejé de la ventanilla, que así, a distancia, me quedé un rato inmóvil ante el acelerado correr de casas y de postes, que por fin le di la espalda, que me senté después en el asiento, que miré frente a mí en el espejo del vagón y que vi mi pobre carita tan triste, tan pálida, entre aquellos crespones negros que la rodeaban que tuve por primera vez la conciencia intensa de mi soledad y abandono. Me acordé de las niñas asiladas y me pareció ver simbolizada en mí la imagen de la orfandad. Tuve entonces un momento de angustia, una especie de ahogo horrible, que quería estallar en sollozos y salírseme en un torrente de lágrimas por los ojos. Pero de repente miré a Madame Jourdan... ¿Te acuerdas de Madame Jourdan, aquella señora distinguida, de pelo gris, que en el hotel tenía su mesa junto a la nuestra y que fue luego la encargada de acompañarme hasta París...? Pues bien, miré de reojo a Madame Jourdan, que estaba sentada al otro extremo del vagón, y vi que me consideraba con curiosidad y con lástima. Al comprobar esto reaccioné de pronto y en mi espíritu se disipó la tormenta. Y es que en aquel momento, como ahora, como siempre, soy más o menos la misma que tú conociste. No lloro nunca a pesar de que tendría razones para llorar a mares. Tal vez porque siempre me ha escoltado la tristeza, es por lo que he aprendido a escondérsela a todos, con un movimiento instintivo, como esconden ciertos niños pobres sus zapatitos rotos delante de la gente rica y bien vestida.
 
-Te escribo en mi cuarto cuyas dos puertas he cerrado con llave. Mi cuarto
-es grande, claro, empapelado de azul celeste, y tiene una ventana con reja que
-da sobre el segundo patio de la casa. Del lado afuera de la ventana, muy
-pegadito a la reja, hay un naranjo, y más allá, en cada una de las otras esqui­
-nas, hay otros naranjos. Como yo he colocado mi escritorio y mi sillón muy
-cerca de mi ventana, mientras pienso echada atrás la cabeza contra el respaldo
-del sillón, o apoyada de codos sobre la blanca tabla del escritorio, estoy siem­
-pre mirando mi patio de los naranjos. Y es tanto lo que tengo pensado miran­
-do hacia arriba, que ya conozco hasta el más mínimo detalle de la verde
-filigrana sobre el azul del cielo . . .
- Ahora, antes de comenzar mi relato, sin mirar naranjos, ni cielo, ni nada,
-he cerrado un instante los ojos, me he puesto sobre ellos las dos manos entre­
-lazadas y muy claramente, durante unos segundos te he visto de nuevo, tal
-como dejé de verte allá en el andén de la estación de Biarritz: andando pri­
-mero, corriendo después junto a la ventanilla de mi vagón que se alejaba, y
-luego tu mano, y por fin tu pañuelo que me decían a gritos: ¡Adiós! . ..
-¡Adiós! . . .
- Recuerdo muy bien que cuando ya no pude verte más, me alejé de la ven­
-tanilla, que así, a distancia, me quedé un rato inmóvil ante el acelerado correr
-de casas y de postes, que por fin le di la espalda, que me senté después en el
-asiento, que miré frente a mí en el espejo del vagón y que vi mi pobre carita
-tan triste, tan pálida, entre aquellos crespones negros que la rodeaban que
-tuve por primera vez la conciencia intensa de mi soledad y abandono. Me
-acordé de las niñas asiladas y me pareció ver simbolizada en mí la imagen de
-la orfandad. Tuve entonces un momento de angustia, una especie de ahogo
-horrible, que quería estallar en sollozos y salírseme en un torrente de lágrimas
-por los ojos. Pero de repente miré a Madame Jourdan . . . ¿Te acuerdas de
-Madame Jourdan, aquella señora distinguida, de pelo gris, que en el hotel
-tenía su mesa junto a la nuestra y que fue luego la encargada de acompañarme
-hasta París . . .? Pues bien, miré de reojo a Madame Jourdan, que estaba
-sentada al otro extremo del vagón, y vi que me consideraba con curiosidad
-y con lástima. Al comprobar esto reaccioné de pronto y en mi espíritu se
-disipó la tormenta. Y es que en aquel momento, como ahora, como siempre,
-soy más o menos la misma que tú conociste. No lloro nunca a pesar de. que
-tendría razones para llorar a mares. Tal vez porque siempre me ha escoltado
-la tristeza, es por lo que he aprendido a escondérsela a todos, con un movi­
-miento instintivo, como esconden ciertos niños pobres sus zapatitos rotos
-delante de la gente rica y bien vestida.
- Por fortuna, Madame Jourdan, que resultó ser una persona encantadora
-fue, poco a poco, distrayendo mi tristeza con su conversación. Comenzó
-preguntándome por ti. Al principio, al vemos siempre juntas y hablando
-español nos había tomado por hermanas. Luego, cuando le relataron la
-muerte repentina de papá, y le preguntaron si querría encargarse de acompa­
-ñarme hasta París, comenzó a interesarse muy vivamente por mí. Había
-perdido ella una niña, hija única, a los cinco años, la cual sería ya una mucha­
-cha grande como nosotras. Después, me preguntó mi edad. Cuando le dije
-que acababa de cumplir dieciocho años, ella contestó entrecortando las frases
-con sentidos suspiros:
- ¡El mundo es un rompecabezas sin arreglar! . . . ¡Las piezas andan
-sueltas sin encontrar quien las encaje! . . . ¡Yo entro en el desierto de mi
-vejez tan sola porque se fue mi hija, y usted se marcha a esa gran batalla de
-la juventud sin el amparo y sin la sombra de su madre! . . .
- Y esto del «desierto de su vejez» y lo de «la gran batalla de mi juventud»
-lo dijo de una manera tan bonita y con una voz tan suave y tan armoniosa,
- que comencé a sentir de repente gran admiración por ella. Me acordé de aque­
-llas actrices, que tanto a ti como a mí nos entusiasmaban de un modo frenético
-por el prestigio de su voz y por el encanto de sus movimientos. Pensé que
-Madame Jourdan debía ser como ellas, que sin duda era muy inteligente, que
-tal vez sería alguna artista, alguna de esas novelistas que escriben bajo seudó­
-nimo, y abandonando entonces mi asiento y mi ventanilla, impulsada por la
-más viva y reverente admiración, fui a sentarme junto a ella.
- Al principio y en vista de su superioridad me sentía algo tímida, algo cohi­
-bida, pero me puse a hablarle, y le conté entonces que iba a emprender un
-largo viaje, que me venía a América donde tenía mi abuela materna y algunos
-tíos y primos que me querían mucho. Conversamos luego sobre los viajes,
-sobre los distintos climas, sobre la hermosura de la naturaleza tropical, sobre
-lo alegre que era la vida a bordo de un trasatlántico, y a las dos horas, disipada
-ya mi timidez del principio, éramos tan amigas y habíamos simpatizado tanto,
-que a mí me parecía haber encajado ya en una de mis casillas correspondientes
-del rompecabezas. Créeme, Cristina, y esto, por supuesto sin que lo sepa
-Abuelita, ¡de buena gana me hubiera quedado viviendo para siempre con
-aquella encantadora Madame Jourdan!
- Pero por desgracia pasó el trayecto, vino una hora en que llegamos a París,
-y entonces tuvo ella que ir a depositarme en casa de mis nuevos chaperons,
-el señor y la señora Ramírez, matrimonio venezolano, amigos íntimos de mi
-familia, entre cuyas manos ya definitivamente facturada debía venir hasta
-La Guaira.
- Estos Ramírez me fueron muy simpáticos desde el principio, porque eran
-alegres, obsequiosos, amables, y porque tenían la admirable costumbre de no
-darme nunca ninguna clase de consejos, cosa ésta bastante rara, pues, como
-ya te habrás fijado tú también, es por este sistema de consejos que los supe­
-riores en edad, dignidad o gobierno acostumbran desahogar su mal humor,
-diciéndonos a nosotros, pobres inferiores, las cosas más duras y desagradables
-del mundo.
- Vivían los Ramírez en un hotel elegante. Cuando llegué acompañada de
-Madame Jourdan salieron ellos a recibirme, cariñosos y atentos. Después de
-las presentaciones consabidas comenzaron por condolerse de mi situación,
-cosa que por lo visto es de rigor al tratarse de mí. Luego me hablaron de
-Caracas, de mi familia, de nuestro próximo viaje, y terminaron entregándome
-unos cincuenta mil francos, remitidos por mi tío y tutor para gastos de toilette
-y de bolsillo, suponían ellos, puesto que el dinero para los gastos del viaje se
-había girado ya.
- Bueno, me dirás interesada si te parece, pero no puedo negarte que ante
-aquellos inesperados cincuenta mil francos, mis negros pensamientos del tren
-se marcharon volando uno tras otro como bandadas de golondrinas, porque
-me juzgué feliz y potentada.
- Además, Ramírez, que había vivido muchos años en Nueva York, me dijo
-que durante el tiempo que permaneciéramos en París, no veía inconveniente
- en qne saliese sola, siempre, por supuesto, que su señora y yo no coincidié­
-semos en nuestras correrías.
- Naturalmente que yo decidí al punto no coincidir jamás con las correrías
-de la señora Ramírez, y aquí como ya verás comienzan mis experiencias,
-impresiones y aventuras.
- ¡No sabes tú lo interesante que es viajar, Cristina! Pero no viajes cortos
-en el tren, como los que hacíamos tú y yo en verano durante los meses de
-vacaciones, no, sino viajes largos, como este mío, en que se sale sola por París,
-y se conoce mucha gente, y se pasa el mar, y se toca en varios puertos. Lo
-único desagradable que ocurre en estos viajes es que, como en los demás, es
-menester llegar un día u otro, y cuando se llega ¡ah! Cristina, cuando se llega
-es como cuando se detiene el coche en que paseábamos o se calla la música
-que nos arrullaba. ¡Qué triste es llegar para siempre a cualquier sitio! . . .
-Yo digo que será por eso sin duda por lo que la muerte nos espanta ¿verdad?
- Volviendo a mi primera entrevista con los Ramírez, te diré que desde el
-día en que murió papá a mí no se me había ocurrido todavía pensar que yo
-era lo que puede llamarse una persona independiente, más o menos dueña de
-su cuerpo y de sus actos. Hasta entonces me había considerado algo así como
-un objeto que las personas se pasan, se prestan, o se venden unas a otras . . .,
-bueno, lo que he vuelto a ser ahora y lo que somos general y desgraciada­
-mente las señoritas «bien».
- Fue Ramírez, con los cincuenta mil francos, y el permiso para salir sola,
-quien me reveló de golpe esta sensación deliciosa de la libertad. Recuerdo
-que inmediatamente, aquella misma noche de mi llegada a París, sentada
-sola en el hall del hotel, frente a un grupo de personas, que a lo lejos, habla­
-ban entre sí; rebosante de optimismo y de cierto espíritu profètico, comencé
-a saborear con fruición mi futura libertad. Aislada como estaba, frente al
-alegre bullicio, me miré largo rato en un espejo tal cual acostumbro y observé
-de repente, que sin tu apoyo y sin tu compañía, mi sencillez de colegiala o
-señorita tímida resultaba horriblemente llamativa, desairada y ridicula. Me
-dije entonces que con cincuenta mil francos y un poco de idea era posible
-hacer muchas cosas. Pensé después que bien podía yo dejar épatée a toda mi
-familia de Caracas con mi elegancia parisiense. Deduje finalmente que para
-ello era indispensable estrecharme el vestido y cortarme el pelo a la gargonne,
-al igual de cierta señora o señorita que en aquel instante se destacaba allá en
-el grupo de enfrente por su silueta graciosísima.
- Y sin más quedó al punto resuelto.
- Al siguiente día en la mañana, muy temprano, fui a comprar unas flores,
-y con ellas en la mano me dirigí a casa de mi querida amiga del tren Madame
-Jourdan. Me recibió ella encantada, como si nos hubiéramos conocido toda
-la vida y como si hubiéramos pasado un siglo sin vernos. Tenía una casa
-preciosa, puesta con un gusto exquisito, lo cual contribuyó a que mi admira­
-ción y aprecio continuaran en «crescendo». Le expliqué que había decidido
-cortarme el pelo porque pretendía volver a mi país hecha una persona verda­
- deramente chic y a la moda. Muy amable y servicial comenzó a darme conse­
-jos de toilette y de buen gusto. Me indicó modistos, sombrereras, peluqueros,
-manicures, y multitud de otras cosas. Me ofreció además hacerme en el futuro
-toda clase de indicaciones y bajo su dirección me puse en campaña aquella
-misma tarde.
- Si vieras entonces: ¡qué ajetreo!, ¡qué ir y venir!, ¡qué días! Y sobre todo
-¡¡qué cambio!! Ya no tenía aquel aire desgraciado de colegiala, de chien
-fouetté ¿sabes? El pelo corto me quedaba maravillosamente. Las modistas
-me encontraban un cuerpo precioso, flexible, y al probarme me decían a cada
-paso:
- Comme Mademoiselle est bien faite!
- Cosa que comprobaba yo al momento, dando vueltas en todas direcciones
-ante las hojas abiertas del espejo de tres cuerpos, y lo cual me causaba una
-satisfacción infinitamente mayor que la cruz de semana, la banda, las primeras
-en composición y toda aquella gran fama de inteligencia que compartía con­
-tigo allá en nuestra clase.
- Una vez me enamoré de una toquita de luto que según me dijo la modista
-sólo usaban las viudas y esto me pareció encantador. A los pocos días iba y
-venía yo con mi toquita de largo velo negro. En las tiendas me llamaban
-«Madame» y un día que salí con el más pequeño de los niños Ramírez que era
-una lindura de tres años, me dijeron en la zapatería que debía haberme casa­
-do muy joven para tener aquel niño tan precioso que era completamente mi
-retrato. Aceptada la suposición me di al punto a sacar cuentas y según la edad
-de Luisito Ramírez habría nacido cuando estábamos tú y yo en tercera clase.
-Figúrate qué escándalo el de las monjas y lo que nos hubiéramos divertido
-con un chiquitín entonces. De fijo que no hubiéramos tenido más remedio
-que esconderlo dentro del pupitre como solíamos hacer con los paquetes de
-bombones.
- Pero es lo cierto que ahora con mi toquita y mi supuesta viudez, París me
-parecía una cosa nueva, desconocida. No era ya aquella ciudad brumosa y
-fría que en los días de vacaciones de Navidad recorríamos tú y yo cogidas de
-la mano, envueltas en un abrigo y seguidas del aya inglesa, mientras nos diri­
-gíamos a las matinés de la Opera o del Teatro Francés. Entonces, todo me
-intimidaba. Las elegantes señoras me causaban una impresión de miedo y
-me sentía tan pequeñita, tan cenicienta, junto a tanta belleza y tanto lujo.
-Ahora no, ahora ya me había tocado la varita mágica, andaba con soltura, con
- seguridad y con muchísima gracia, porque sabía demasido que aquello de:
- «Comme Mademoiselle est bien faite!», me lo decían también a gritos y con
- puntos de exclamación los ojos de todos cuantos me veían. Era una cosa tan
- general que yo vivía encantada. Me admiraba todo el mundo. Mira: me
- admiraban mis amigos los Ramírez, me admiraban sus niños; me admiraban
- unos españoles muy simpáticos que en el comedor tenían su mesa frente a
- nosotros; me admiraba el gerente del hotel; el camarero que nos atendía; el
- muchacho del ascensor; el marido de mi manicure, los dependientes de la
- peluquería; y un señor muy elegante que encontré una mañana por la calle
-y que al mirarme venir le dijo a otro que iba con él:
- Regarde done, quelle jolie filie!
- Decididamente, en aquellos días gloriosos, París abrió de repente sus brazos
-y me recibió de hija, así, de pronto, porque le dio la gana. ¡Ah! ¡era indu­
-dable! Yo formaba ya parte de aquella falange de mujeres a las cuales evo­
-caba papá entornando los ojos con una expresión extraña que yo entonces
-no acababa de explicarme muy bien porque era como si hablase de algún
-dulce muy rico mientras decía:
- ¡¡Qué mujeres!!
- Nunca me había ocurrido nada igual, Cristina. Sentía dentro de mí misma
-una alegría loca. Me parecía que mi espíritu se abría todo en flores como
-aquellos árboles del parque del colegio en los meses de abril y mayo. Era
-como si en mí misma hubiese descubierto de pronto una mina, un manantial
-de optimismo y sólo vivía para beberlo y para contemplarme en él. Creo
-ahora que fue debido a aquella satisfacción egoísta por lo que nunca te escribí
-sino postales lacónicas que tú me contestabas con cartas inexpresivas y tristes.
-Hoy, al releerlas me parece adivinar en ellas toda tu amarga decepción de
-entonces y me conmuevo de contrición. Pero pienso que a estas horas debes
-haber comprendido el porqué de mi indiferencia tan fugaz como mi alegría
-y que generosamente la habrás perdonado ya.
- Algunas veces, también, me ponía a pensar que aquel optimismo y aquella
-alegría de vivir que me hacían tan feliz eran impropios en medio de una
-desgracia reciente como la mía. Tenía entonces ratos de un remordimiento
-agudo, y para acallarlo en desagravio al alma de papá le daba unos francos a
-algún chiquillo harapiento o entraba a dejar una limosna en el cepillo de la
-iglesia.
+Por fortuna, Madame Jourdan, que resultó ser una persona encantadora fue, poco a poco, distrayendo mi tristeza con su conversación. Comenzó preguntándome por ti. Al principio, al vernos siempre juntas y hablando español nos había tomado por hermanas. Luego, cuando le relataron la muerte repentina de papá, y le preguntaron si querría encargarse de acompañarme hasta París, comenzó a interesarse muy vivamente por mí. Había perdido ella una niña, hija única, a los cinco años, la cual sería ya una muchacha grande como nosotras. Después, me preguntó mi edad. Cuando le dije que acababa de cumplir dieciocho años, ella contestó entrecortando las frases con sentidos suspiros:
 
+—¡El mundo es un rompecabezas sin arreglar!... ¡Las piezas andan sueltas sin encontrar quien las encaje!... ¡Yo entro en el desierto de mi vejez tan sola porque se fue mi hija, y usted se marcha a esa gran batalla de la juventud sin el amparo y sin la sombra de su madre!...
 
-¡Ah! papá ¡pobre papá!. . . Mientras esto le cuento a mi amiga Cristina,
-allá, en las suaves visiones de mi mente, ha pasado un instante la indulgencia
-de tu rostro, florecida por la indulgencia aprobadora de tu sonrisa. ¡Y cómo
-la reconozco! ¡Mal podías enojarte! ¡Aquellos días fugaces en que tu espíritu
-pródigo y jovial pareció renacer por un momento en mi alma eran la única
-herencia que debías legarme!
+Y esto del «desierto de su vejez» y lo de «la gran batalla de mi juventud» lo dijo de una manera tan bonita y con una voz tan suave y tan armoniosa, que comencé a sentir de repente gran admiración por ella. Me acordé de aquellas actrices, que tanto a ti como a mí nos entusiasmaban de un modo frenético por el prestigio de su voz y por el encanto de sus movimientos. Pensé que Madame Jourdan debía ser como ellas, que sin duda era muy inteligente, que tal vez sería alguna artista, alguna de esas novelistas que escriben bajo seudónimo, y abandonando entonces mi asiento y mi ventanilla, impulsada por la más viva y reverente admiración, fui a sentarme junto a ella.
+
+Al principio y en vista de su superioridad me sentía algo tímida, algo cohibida, pero me puse a hablarle, y le conté entonces que iba a emprender un largo viaje, que me venía a América donde tenía mi abuela materna y algunos tíos y primos que me querían mucho. Conversamos luego sobre los viajes, sobre los distintos climas, sobre la hermosura de la naturaleza tropical, sobre lo alegre que era la vida a bordo de un trasatlántico, y a las dos horas, disipada ya mi timidez del principio, éramos tan amigas y habíamos simpatizado tanto, que a mí me parecía haber encajado ya en una de mis casillas correspondientes del rompecabezas. Créeme, Cristina, y esto, por supuesto sin que lo sepa Abuelita, ¡de buena gana me hubiera quedado viviendo para siempre con aquella encantadora Madame Jourdan!
+
+Pero por desgracia pasó el trayecto, vino una hora en que llegamos a París, y entonces tuvo ella que ir a depositarme en casa de mis nuevos *chaperons*, el señor y la señora Ramírez, matrimonio venezolano, amigos íntimos de mi familia, entre cuyas manos ya definitivamente facturada debía venir hasta La Guaira.
+
+Estos Ramírez me fueron muy simpáticos desde el principio, porque eran alegres, obsequiosos, amables, y porque tenían la admirable costumbre de no darme nunca ninguna clase de consejos, cosa ésta bastante rara, pues, como ya te habrás fijado tú también, es por este sistema de consejos que los superiores en edad, dignidad o gobierno acostumbran desahogar su mal humor, diciéndonos a nosotros, pobres inferiores, las cosas más duras y desagradables del mundo.
+
+Vivían los Ramírez en un hotel elegante. Cuando llegué acompañada de Madame Jourdan salieron ellos a recibirme, cariñosos y atentos. Después de las presentaciones consabidas comenzaron por condolerse de mi situación, cosa que por lo visto es de rigor al tratarse de mí. Luego me hablaron de Caracas, de mi familia, de nuestro próximo viaje, y terminaron entregándome unos cincuenta mil francos, remitidos por mi tío y tutor para gastos de *toilette* y de bolsillo, suponían ellos, puesto que el dinero para los gastos del viaje se había girado ya.
+
+Bueno, me dirás interesada si te parece, pero no puedo negarte que ante aquellos inesperados cincuenta mil francos, mis negros pensamientos del tren se marcharon volando uno tras otro como bandadas de golondrinas, porque me juzgué feliz y potentada.
+ 
+Además, Ramírez, que había vivido muchos años en Nueva York, me dijo que durante el tiempo que permaneciéramos en París, no veía inconveniente en qne saliese sola, siempre, por supuesto, que su señora y yo no coincidiésemos en nuestras correrías.
+
+Naturalmente que yo decidí al punto no coincidir jamás con las correrías de la señora Ramírez, y aquí como ya verás comienzan mis experiencias, impresiones y aventuras.
+ 
+¡No sabes tú lo interesante que es viajar, Cristina! Pero no viajes cortos en el tren, como los que hacíamos tú y yo en verano durante los meses de vacaciones, no, sino viajes largos, como este mío, en que se sale sola por París, y se conoce mucha gente, y se pasa el mar, y se toca en varios puertos. Lo único desagradable que ocurre en estos viajes es que, como en los demás, es menester llegar un día u otro, y cuando se llega ¡ah! Cristina, cuando se llega es como cuando se detiene el coche en que paseábamos o se calla la música que nos arrullaba. ¡Qué triste es llegar para siempre a cualquier sitio!... Yo digo que será por eso sin duda por lo que la muerte nos espanta ¿verdad?
+
+Volviendo a mi primera entrevista con los Ramírez, te diré que desde el día en que murió Papá a mí no se me había ocurrido todavía pensar que yo era lo que puede llamarse una persona independiente, más o menos dueña de su cuerpo y de sus actos. Hasta entonces me había considerado algo así como un objeto que las personas se pasan, se prestan, o se venden unas a otras..., bueno, lo que he vuelto a ser ahora y lo que somos general y desgraciadamente las señoritas «bien».
+
+Fue Ramírez, con los cincuenta mil francos, y el permiso para salir sola, quien me reveló de golpe esta sensación deliciosa de la libertad. Recuerdo que inmediatamente, aquella misma noche de mi llegada a París, sentada sola en el *hall* del hotel, frente a un grupo de personas, que a lo lejos, hablaban entre sí; rebosante de optimismo y de cierto espíritu profético, comencé a saborear con fruición mi futura libertad. Aislada como estaba, frente al alegre bullicio, me miré largo rato en un espejo tal cual acostumbro y observé de repente, que sin tu apoyo y sin tu compañía, mi sencillez de colegiala o señorita tímida resultaba horriblemente llamativa, desairada y ridícula. Me dije entonces que con cincuenta mil francos y un poco de idea era posible hacer muchas cosas. Pensé después que bien podía yo dejar *épatée* a toda mi familia de Caracas con mi elegancia parisiense. Deduje finalmente que para ello era indispensable estrecharme el vestido y cortarme el pelo a la *garçonne*, al igual de cierta señora o señorita que en aquel instante se destacaba allá en el grupo de enfrente por su silueta graciosísima.
+
+Y sin más quedó al punto resuelto.
+
+Al siguiente día en la mañana, muy temprano, fui a comprar unas flores, y con ellas en la mano me dirigí a casa de mi querida amiga del tren Madame Jourdan. Me recibió ella encantada, como si nos hubiéramos conocido toda la vida y como si hubiéramos pasado un siglo sin vernos. Tenía una casa preciosa, puesta con un gusto exquisito, lo cual contribuyó a que mi admiración y aprecio continuaran en «crescendo». Le expliqué que había decidido cortarme el pelo porque pretendía volver a mi país hecha una persona verdaderamente *chic* y a la moda. Muy amable y servicial comenzó a darme consejos de *toilette* y de buen gusto. Me indicó modistos, sombrereras, peluqueros, *manicures*, y multitud de otras cosas. Me ofreció además hacerme en el futuro toda clase de indicaciones y bajo su dirección me puse en campaña aquella misma tarde.
+
+Si vieras entonces: ¡qué ajetreo!, ¡qué ir y venir!, ¡qué días! Y sobre todo ¡¡qué cambio!! Ya no tenía aquel aire desgraciado de colegiala, de *chien fouetté* ¿sabes? El pelo corto me quedaba maravillosamente. Las modistas me encontraban un cuerpo precioso, flexible, y al probarme me decían a cada paso:
+
+—*Comme Mademoiselle est bien faite!*
+
+Cosa que comprobaba yo al momento, dando vueltas en todas direcciones ante las hojas abiertas del espejo de tres cuerpos, y lo cual me causaba una satisfacción infinitamente mayor que la cruz de semana, la banda, las primeras en composición y toda aquella gran fama de inteligencia que compartía contigo allá en nuestra clase.
+
+Una vez me enamoré de una toquita de luto que según me dijo la modista sólo usaban las viudas y esto me pareció encantador. A los pocos días iba y venía yo con mi toquita de largo velo negro. En las tiendas me llamaban «*Madame*» y un día que salí con el más pequeño de los niños Ramírez que era una lindura de tres años, me dijeron en la zapatería que debía haberme casado muy joven para tener aquel niño tan precioso que era completamente mi retrato. Aceptada la suposición me di al punto a sacar cuentas y según la edad de Luisito Ramírez habría nacido cuando estábamos tú y yo en tercera clase. Figúrate qué escándalo el de las monjas y lo que nos hubiéramos divertido con un chiquitín entonces. De fijo que no hubiéramos tenido más remedio que esconderlo dentro del pupitre como solíamos hacer con los paquetes de bombones.
+
+Pero es lo cierto que ahora con mi toquita y mi supuesta viudez, París me parecía una cosa nueva, desconocida. No era ya aquella ciudad brumosa y fría que en los días de vacaciones de Navidad recorríamos tú y yo cogidas de la mano, envueltas en un abrigo y seguidas del aya inglesa, mientras nos dirigíamos a las matinés de la Ópera o del Teatro Francés. Entonces, todo me intimidaba. Las elegantes señoras me causaban una impresión de miedo y me sentía tan pequeñita, tan cenicienta, junto a tanta belleza y tanto lujo. Ahora no, ahora ya me había tocado la varita mágica, andaba con soltura, con seguridad y con muchísima gracia, porque sabía demasido que aquello de: «*Comme mademoiselle est bien faite!*», me lo decían también a gritos y con puntos de exclamación los ojos de todos cuantos me veían. Era una cosa tan general que yo vivía encantada. Me admiraba todo el mundo. Mira: me admiraban mis amigos los Ramírez, me admiraban sus niños; me admiraban unos españoles muy simpáticos que en el comedor tenían su mesa frente a nosotros; me admiraba el gerente del hotel; el camarero que nos atendía; el muchacho del ascensor; el marido de mi *manicure*, los dependientes de la peluquería; y un señor muy elegante que encontré una mañana por la calle y que al mirarme venir le dijo a otro que iba con él:
+
+—*Regarde donc, quelle jolie fille!*
+Decididamente, en aquellos días gloriosos, París abrió de repente sus brazos y me recibió de hija, así, de pronto, porque le dio la gana. ¡Ah! ¡Era indudable! Yo formaba ya parte de aquella falange de mujeres a las cuales evocaba Papá entornando los ojos con una expresión extraña que yo entonces no acababa de explicarme muy bien porque era como si hablase de algún dulce muy rico mientras decía:
+
+—¡¡Qué mujeres!!
+Nunca me había ocurrido nada igual, Cristina. Sentía dentro de mí misma una alegría loca. Me parecía que mi espíritu se abría todo en flores como aquellos árboles del parque del colegio en los meses de abril y mayo. Era como si en mí misma hubiese descubierto de pronto una mina, un manantial de optimismo y sólo vivía para beberlo y para contemplarme en él. Creo ahora que fue debido a aquella satisfacción egoísta por lo que nunca te escribí sino postales lacónicas que tú me contestabas con cartas inexpresivas y tristes. Hoy, al releerlas me parece adivinar en ellas toda tu amarga decepción de entonces y me conmuevo de contrición. Pero pienso que a estas horas debes haber comprendido el porqué de mi indiferencia tan fugaz como mi alegría y que generosamente la habrás perdonado ya.
+
+Algunas veces, también, me ponía a pensar que aquel optimismo y aquella alegría de vivir que me hacían tan feliz eran impropios en medio de una desgracia reciente como la mía. Tenía entonces ratos de un remordimiento agudo, y para acallarlo en desagravio al alma de Papá le daba unos francos a algún chiquillo harapiento o entraba a dejar una limosna en el cepillo de la iglesia.
+
+¡Ah! papá ¡pobre papá!... Mientras esto le cuento a mi amiga Cristina, allá, en las suaves visiones de mi mente, ha pasado un instante la indulgencia de tu rostro, florecida por la indulgencia aprobadora de tu sonrisa. ¡Y cómo la reconozco! ¡Mal podías enojarte! ¡Aquellos días fugaces en que tu espíritu pródigo y jovial pareció renacer por un momento en mi alma eran la única herencia que debías legarme!
 
 En París estuvimos casi tres meses, por retraso de fondos y cambio de plan
 en el itinerario del matrimonio Ramírez. Los días, que se sucedían en parti­
