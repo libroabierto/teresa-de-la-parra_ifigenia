@@ -246,401 +246,124 @@ Yo los abracé entonces a todos ordenadamente, pensando si aquella obsesión o m
 
 Como Papá no nombraba jamás a la familia de tío Eduardo, ni yo había visto nunca sus retratos, no bien hube repartido los ordenados abrazos, sentí que en mi cabeza se formaba una ensalada de caras y de nombres sueltos imposibles de combinar y colocar después en sus respectivos sitios. No obstante, en honor de la verdad, Cristina, debo confesarte que aquella ensalada de tío Eduardo no estaba nada mal. La edad de mis cuatro primos es de: dieciocho, dieciséis, catorce, y trece años, respectivamente. En aquel instante, animados y decidores, me hablaban todos a la vez y como al hablar sonreían alegremente con unos dientes muy blancos y unos ojos muy negros, yo me puse de muy buen humor y también saqué a relucir toda mi colección de amabilidades y sonrisas.
 
+Pero debo advertirte, no vayas a confundir, que esto de la ensalada más o menos fresca, agradable y bien aderezada, no atañe sino a mis primos, o sea a las cuatro últimas combinaciones de la lista que he tenido la precaución de escribirte. Porque el encabezamiento de dicha lista o, sea la combinación: «María Antonia» corresponde a la persona de mi tía política, «la honorable matrona» como dirán los periódicos el día de su muerte, esposa de tío Eduardo, y madre o cocinera-autora de la ensalada, quien al igual de su marido, exige imperiosamente los honores de un croquis que paso a esbozarte ya lo mejor y más brevemente posible:
 
- Pero debo advertirte, no vayas a confundir, que esto de la ensalada más
-o menos fresca, agradable y bien aderezada, no atañe sino a mis primos, o
-sea a las cuatro últimas combinaciones de la lista que he tenido la precau­
-ción de escribirte. Porque el encabezamiento de dicha lista o sea la combina­
-ción: «María Antonia» corresponde a la persona de mi tía política «la
-honorable matrona» como dirán los periódicos el día de su muerte, esposa de
-tío Eduardo, y madre o cocinera-autora de la ensalada, quien al igual de su
-marido, exige imperiosamente los honores de un croquis que paso a esbozarte
-ya lo mejor y más brevemente posible:
- Mi tía María Antonia Fernández de Aguirre es más bien pequeña, y su
-figura completamente trivial e insignificante a no mediar la circunstancia
-de los ojos. Pero María Antonia, Cristina, tiene unos ojos inmensos, redon­
-dos, negrísimos y brillantes, que están circundados por unas ojeras que tam­
-bién son inmensas, redondas, negrísimas, pero opacas. Este consorcio de
-los enormes ojos con las enormes ojeras, no es nada banal como te he dicho
-ya, sino que por el contrario, tanta negrura brillante asomada a tantísima
-negrura opaca viene siendo algo así como una tragedia espantosa de cinema­
-tógrafo de esas que pasan entre apaches con puñales en un cuarto oscuro. Y
-naturalmente que la intensa tragedia de los ojos, tiene una influencia directa
-sobre toda la persona física y moral de María Antonia. En el rostro, por
-ejemplo, la boca cerrada se tuerce siempre, sin saber por qué, y el observador
-al mirarla así, cerrada y torcida, busca al punto los ojos y se explica el fenó­
-meno pensando: «son efectos de la tragedia». Lo mismo dice al considerar
-la sombra oscura que como una tinta misteriosa parece filtrarse de las pupilas
-y correr suavemente bajo la epidermis; y lo mismo repite al considerar el
-pelo negrísimo, y la voz, y las palabras, y el sentido de ellas, y los colores
-violentos y algo desavenidos, con que suele vestirse. Moralmente María
-Antonia es irreprochable. Yo lo sé porque Abuelita lo dice con bastante
-frecuencia a compás, separando imperceptiblemente las sílabas mientras sepa­
- ra al mismo tiempo cinco hilos de su calado: « I 'rre'pro'cha'ble». Y la verdad,
-creo que en eso Abuelita tiene mucha razón. Una prueba palpable de ello es
-el culto apasionado y ferviente que María Antonia le profesa a la moral. No
-a la moral suya, lo cual sería horriblemente egoísta, sino a la moral en general,
-y sobre todo a esa moral delicada y sutil que se expone y peligra a todas horas
-adheridas a la conducta de las mujeres bonitas. Para observar las oscilacio­
-nes y salvar la integridad de esta faz concreta de la moral, María Antonia
-posee una actividad, un celo, una doble vista y un ardor de misionero, que es
-verdaderamente admirable. Y he aquí, en síntesis, mi impresión general acer­
-ca de María Antonia, su psicología y sus ojos, tal como se me revelaron por
-primera vez aquella mañana y tal como los he seguido observando desde enton­
-ces. Ahora bien, tío Pancho Alonso que es sumamente disparatado suele
-decir, refiriéndose a estos últimos:
- «Los ojos de María Antonia están muy bien. Recuerdan mucho un par
-de botas de charol sin estrenar, y parecen hechos de una materia inflamable,
-ardiente y peligrosa, algo que oscila entre la dinamita y lo que el vulgo llama
- envidia negra . ¡Ah!, pero eso sí; muy negra, muy limpia, muy brillante:
- ¡muy bien embetunada! . . .».
- Por supuesto, Cristina, que yo no acepto esos términos de zapatería al
-hablar de unos ojos, y te ruego a ti que tampoco los tomes en consideración.
-Son disparates de tío Pancho, que con su mala lengua todo lo mezcla y lo
-confunde.
- Cuando mis primos y yo dimos por terminados los mutuos saludos y cum­
-plimientos, fuimos a visitar el vapor. Lo recorrimos varias veces en distintas
-direcciones y luego de sentirnos ya cansados, acaloradísimos y muy buenos
-amigos, bajamos todos a tierra. Cuando estábamos aún estacionados a las
-puertas de la aduana, esperando no sé qué, de golpe, como una exhalación
-envuelta por una nube de polvo, pasó un automóvil bastante deteriorado y
-mis primos al mirarle cruzar frente a nosotros gritaron todos a una:
- ¡Es Don Pancho Alonso! ¡Don Pancho! ¡Don Pancho! Y se pusie­
-ron a hacer señas al automóvil que se detuvo y comenzó a andar hacia atrás.
- ¡Por fin aparecía tío Panchito!
- Mientras ellos seguían con sus señas y sus voces, yo corrí a toda prisa en
-sentido contrario al auto que retrocedía, llegué hasta él, abrí ágilmente la
-portezuela, y entonces, delgado, canoso, paternal, risueño, afeitado, oloroso
-a brandy, cariñosísimo, vestido de nuevo, y muy diferente a lo que yo recor­
-daba, junto al automóvil empolvado y viejo, con los brazos y con toda el alma
-me estrechó un largo rato tío Pancho Alonso.
- Luego que nos hubimos abrazado los dos a nuestra entera satisfacción, y
-luego que él, alegre y sorprendidísimo de encontrarme tan bonita, me lo dijo
-con una diversidad de flores que eran un encanto, dado lo muy acertadas y a
-mi gusto que resultaron todas, se fue a saludar a los demás. Por cierto que
-mientras se saludaban ocurrió entre ellos un pequeño incidente bastante origi­
-nal, que pobló de consecuencias todo el resto del día.
- Y es que pasa, Cristina, que mis cuatro primos a más de poseer nombres
-dobles, cosa que los mezcla y los confunde mucho, gozan además por otros
-respectos de la uniformidad más absoluta. Todos se parecen. No sólo en el
-físico, sino en la identidad de los puntos de vista, en el sistema de enfocar sus
-imaginaciones, y en el vocabulario empleado para expresar sus ideas. De ahí
-que al hablar coincidan siempre unos con otros, tanto en el fondo como en la
-forma de sus opiniones, pero de un modo tan exacto que si por circunstancias
-esta coincidencia, en vez de ser simultánea es sucesiva, resulta una especie de
-letanía absolutamente crispante.
- Ocurrió, pues, que luego de abrazarnos efusivamente, mientras tío Pancho
-y yo caminábamos juntos el cortísimo espacio que separaba el automóvil de
-la aduana, mis primos, uno tras otro, nos fueron saliendo al encuentro y cada
-uno de ellos, antes o después de saludar, hizo más o menos, con ligerísimas
-modificaciones, la siguiente observación:
- ¡Caramba! ¡Y qué elegante se puso Don Pancho para recibir a la sobri­
-na; ¡vestido de tussor nuevo! . . .
- Así dijo el primero; dijo el segundo, dijo el tercero; pero al decir el cuarto,
-tío Pancho, que realmente, según he visto después, se hallaba en aquel mo­
-mento, y en honor mío, de una inusitada elegancia, ante tan gran insistencia
-perdió por completo el dominio de sus nervios. Con un movimiento rápido
-que le es muy peculiar, se puso los dos brazos en jarras sobre la flamante
-chaqueta de tussor, y como si los demás, precedidos ya solemnemente por
-tío Eduardo y María Eugenia, estuviesen todos sordos, me interrogó muy
-serio contemplándome de hito en hito:
- Díme: ¿tú habías visto nunca un arreo en donde todos los burros pasa­
-ran rebuznando al mismo tiempo?
- Yo miré el traje nuevo de tío Pancho, su expresión, sus brazos en jarras,
-la cara de mis tíos, la de mis primos, y me pareció todo tan cómico que sin
-decir ni sí ni no, reventé en una sonora carcajada. Al oírme reír uno de los
-del arreo, protestó al momento muy ofendido:
- ¡Qué poca corriente tiene, Don Pancho!
- María Antonia por su lado le dijo a tío Eduardo con la tragedia de los ojos
-que daba miedo:
- ¿Tú ves? . . . ¡Si es que son unas groserías que no se pueden aguantar!...
- Y sin más quedó establecida la discordia.
- No obstante, mis primos, que son poco rencorosos, acabaron por olvidar
-el agravio. Tío Pancho nos llevó en automóvil a pasear por Macuto y sus
-alrededores, nos obsequió varias veces con cocktails y aceitunas, nos regaló
-dulces, y como en entretanto a propósito de cuanto veíamos decía cosas diver­
-tidísimas, cuando llegó la hora del almuerzo, entre mis primos y él se había
-establecido ya un acuerdo.
- Pero no pareció ocurrir lo mismo con María Antonia. Al sentarnos a la
-mesa, ella tomó al punto la palabra, y con una voz gutural y solemne, que
-ante el gran público de vasos, platos, jarros, botellas, cuchillos y tenedores
- del hotel, casi vacío, resultaba muy ciceroniana y muy bien, reprendió seve­
-ramente a sus hijos por haber tomado cocktails, y habló horrores del alcohol
-en general deteniéndose muy especialmente en el brandy y el whisky, bebidas
-que, según he visto después, son por desgracia las dos amigas predilectas de
-tío Pancho.
- Este discurso anti-alcohólico me habría impresionado vivamente en contra
-de los cocktails, a no mediar las contestaciones escépticas y un tanto irreve­
-rentes que dio tío Pancho mientras se bebía a sorbos un enorme vaso de
-cerveza con hielo. Sí; Cristina, tío Pancho es insensible al fuego magnético
-de la elocuencia; lo comprobé aquel día y desde entonces, lo considero com­
-pletamente inmovilizable. ¡Ah! sí; yo creo firmemente que tío Pancho nunca,
-jamás, hubiera formado parte de esas falanges gloriosas, orgullo de la huma­
-nidad, que encendidas de entusiasmo a través de los siglos, han seguido a
-Demóstenes, a Pedro el Ermitaño, a San Francisco, a Lutero, a Mirabeau, y
-a Gabriel d'Annunzio . . .
- Después de hablar de los cocktails y del alcohol se habló de París, y María
-Antonia dijo:
- Me hace el efecto de una gran casa de corrupción que estuviera suelta
-por las calles. Una mujer honrada y que se estime, no puede andar sola en
-París ¡porque se ven horrores! ¡horrores!
- Y en señal de horror se llevó la mano derecha sobre los ojos . . .
- Intrigada y llena de curiosidad, yo me quedé un gran rato con la mirada
-fija sobre un pedazo de pan evocando uno tras otro, los bulevares de París,
-a fin de contemplar aquellos horrores con la imaginación, ya que no podía
-contemplarlos con los ojos. Pero no lograba recordar ninguno y tío Pancho
-acabó al fin por sacarme de mi abstracción con este discurso original y un
-tanto paradójico:
- ¡Reniego de los trasatlánticos que establecen comunicaciones con Europa!
-Creo que como Hernán Cortés, todos los conquistadores debieron tomar la
-precaución de quemar sus naves inmediatamente después de desembarcar, a
-fin de evitar cualquier tentativa de retorno. De este modo viviríamos aquí
-siempre contentos como viven las ranas de los charcos, que nunca están de
-mal humor porque carecen del concepto «peor» y sobre todo del concepto
-«mejor» fuente de casi todas las desgracias humanas. Sí; establecidos bajo el
-sol de los trópicos después de haber robado y asesinado patriarcalmente a
-todos los indios, debimos evitar con prudencia las nefastas influencias europeas.
-Disfrutaríamos así alegremente de uno de los más benignos climas del
-mundo, nos comeríamos ahora con delicia las frutas de esa compotera que son
-bastante jugosas y perfumadas, nos adornaríamos con las plumas maravillosas
-de nuestros pájaros, y dormiríamos en hamaca que es sin duda ninguna la más
-fresca y mullida de las camas. De resultas de tan sabia política no habría
-habido Guerra de la Independencia, Bolívar no hubiera tenido ocasión de
- distinguirse en ella como Libertador, y a estas horas los periódicos no nos
- atormentarían diariamente celebrando nuestras glorias patrias con esa profu'
- sión de hipérboles, redundancias, y adjetivos de malísimo gusto; quizás no
-existieran tampoco los periódicos, lo cual sería ya el colmo del bienestar.
-Por mi parte, yo no hubiera tenido la posibilidad de instalarme en París hace
-cosa de treinta años, y no habría gastado hasta el último céntimo de mi for­
-tuna regalando collares de perlas, sombreros de dos mil francos, y perros
-premiados, cosas que me parecen ahora completamente superficiales. ¡Ah!
-sí; digan lo que quieran yo detesto los antiguos buques de vela y detesto
-muchísimo más aún los modernos trasatlánticos. Los considero el origen de
-nuestras desgracias. Pero en fin, después de todo me conformo con los buques
-de vela y quisiera haber nacido en la época feliz de la Colonia, allá, cuando
-nuestras bisabuelas y tatarabuelas atravesaban las calles empedradas de Cara­
-cas en sillas de mano, llevadas por dos esclavos que eran siempre fieles, negrí­
-simos y robustos, porque no habían sido contaminados aún con los vicios y
-las pretensiones de la raza blanca.
- Verdaderamente dijo el menor de mis primos , yo creo que debe
-ser muy agradable andar en silla de mano. ¡Será algo así como ir caminando
-por el aire sin tocar el suelo! Lo malo es que se debía andar despacísimo.
- ¡Ah! ¡qué diferencia ahora con el automóvil!
- No lo creas, hijo mío dijo tío Pancho . Era muchísimo mejor siste­
-ma el de la silla de mano. En primer lugar se economizaban los cauchos y la
-gasolina, por otro lado había menos choques, y en cuanto al tiempo gastado
-en el trayecto eso no tenía entonces la menor importancia. Para nuestros
-bisabuelos lo mismo era llegar temprano que llegar tarde, o que no llegar
-nunca. La manía de llegar es relativamente moderna y el más terrible azote
-con que nos mortifica a todos la civilización.
- María Antonia, cuyo pudor se había herido vivamente por el cinismo que
-encerraban los collares, los sombreros, y los perros premiados, volvió a tomar
-la voz ciceroniana y dijo refiriéndose a la imagen de las ranas:
- No comprendo por qué razón no hemos de ir a Europa. Yo a Dios
-gracias, no me considero rana, ni creo que Venezuela sea ningún charco.
-Tenemos nuestros defectos, es verdad, como allá también tienen los suyos,
-pero en todas partes, aun en el mismo París, hay gente muy honrada y muy
-buena con quien se puede tratar. Pero los que van de aquí no tratan sino
-con la escoria, y creen que eso es lo elegante y lo que debe ser. Cuando yo
-fui a Europa recién casada, me distraje mucho: ¡Cómo se distrae la gente
-decente, eso sí! ¡Eduardo me cuidaba muchísimo! Eduardo no me llevó jamás
-a ciertos teatros donde van ahora muchas niñas suramericanas; Eduardo no
-me dejaba salir sola; Eduardo no me permitía de ningún modo que bailara;
-ni que tuviera intimidad con nadie; ni que me pintara; ni que me pusiera
-vestidos indecentes: ¡aunque estuvieran muy de moda! ni que . . .
- Y mientras seguía la enumeración, yo, ladeé ligeramente la cabeza, porque
- en el centro de la mesa, la compotera, colmada de frutas y de flores me ocul­
- taba a «Eduardo» sentado frente a mí y me urgía muchísimo contemplar a
-mi sabor aquel busto de Otelo. Pero, desgraciadamente, allende la compo-
- teta, Otelo, no parecía estar en carácter, circunstancia que le quitó colorido
-a la enumeración. En aquel momento psicológico se hallaba tranquilamente
-con el tenedor en la mano derecha, un pedacito de pan en la mano izquierda,
-y los ojos clavados en su plato muy ocupado en quitarle las espinas a su
-porción de pescado. Y como terminase al punto tan delicada empresa se llevó
-a la boca el tenedor cargado de blanquísima pulpa, la saboreó, la tragó, esperó
-pacientemente a que María Antonia rematase su discurso y dijo entonces con
-un hilillo sutil de mayonesa prisionero entre dos hilos de su bigote:
- ¡Pues yo encuentro que el pescado está fresquísimo! Me parece exqui­
-sito, muy bien preparado y no comprendo por qué en Caracas no hemos de
-comerlo así. María Antonia: es indudable que la cocinera nos roba, convén­
-cete. Por el afán de robar, compra siempre el pescado peor; ¡el que nadie
-quiere! Pues ahora al pasar por La Guaira voy a hablar con el encargado
-del depósito, y si me dejan el pescado a precio de costo en Caracas lo voy a
-encargar fijo para tres días en la semana. Si te parece, la cocinera misma
-puede pasar a buscarlo cuando vuelve del mercado empleando la misma
-correspondencia de tranvía que toma siempre para llegar hasta casa.
- María Antonia, cuyo plano mental se hallaba ahora muy distante del pesca­
-do, la cocinera, y el tranvía, contestó indignada:
- ¡Julia la martiniqueña no nos roba en absoluto! ¡Me consta que es
-honradísima! ¡Y encuentro muy malo este pescado! La mayonesa está hecha
-con un aceite infernal; ¡Qué diferencia con el que tomamos en casa!
- Pues a mí, lo mismo que a Papá, me parece muy bueno el pescado, dijo
-mi prima con cierta melancolía pero no me lo como porque vi al trasluz
-mi tenedor y deja mucho que desear. . . y es inútil que pida otro. . . los
-cubiertos de los hoteles: ¡siempre están su cio s!... Y es que no los lavan
-sino que los limpian con un paño ¡lo vi ahora al pasar!. . .
- - Oye un consejo, hija mía dijo tío Pancho muy condolido ; nunca
-veas los cubiertos ni nada a trasluz. En la comida lo mismo que en todo lo
-demás el afán investigador no nos conduce sino a descubrimientos desagrada­
-bles. Las personas más felices serán siempre aquellas que hayan descubierto
-menos cosas durante su vida. Te hablo por experiencia. Mira, desde que
-yo he perdido la vista lo suficientemente para confundir una mosca con un
-grano de pimienta, tengo mejor humor y muchísima mejor digestión.
- ¡Ay! ¡Confundir una mosca con un grano de pimienta! ¡Comerse una
-mosca! ¡Qué horror! ¡Qué horror! dijeron a la vez casi todos mis primos.
- Pero tío Pancho en un nuevo discurso muy bien documentado, y un poco
-paradójico también, nos demostró palpablemente los grandes perjuicios que
-ocasionan a la humanidad el microscopio, la higiene, las vacunas, la cirugía,
-y las academias de Medicina; cosas todas que según él suelen acabar con las
-personas verdaderamente robustas, conservando en cambio a los enfermi­
-zos, a los pobres, a los aburridos y a los desgraciados, seres infelices contra
-quienes se ensañan arbitrariamente al privarle de la muerte que es cosa tan
-natural e inofensiva.
- María Antonia que hierve tocios los días el agua filtrada, y duerme todas
-las noches con mosquitero, se escandalizó naturalmente al oír tan horrible
-dislate. Con tal motivo se discutió; se habló después sin discutir; se tomó
-café; se volvió a discutir; se dio por terminado el almuerzo; paseamos en­
-tonces a pie por la playa; nos retratamos bajo unos árboles; y apaciguado
-ya el sol y repartidos en los dos autos emprendimos el camino de Caracas.
- Antes de subir al automóvil yo había advertido:
- Quisiera ir delante con el chauffeur para ver mejor el camino.
- Y de nuevo, tras el volar del auto por la cinta blanca de la carretera, sobre
-los abismos y las montañas, en silencio, desde el templo interior de mi sen­
-sibilidad, me entregué a la contemplación, a la comunión íntima con la na­
-turaleza, a las suaves evocaciones y al miedo voluptuoso de llegar. . .
+Mi tía María Antonia Femández de Aguirre es más bien pequeña, y su figura completamente trivial e insignificante a no mediar la circunstancia de los ojos. Pero María Antonia, Cristina, tiene unos ojos inmensos, redondos, negrísimos y brillantes, que están circundados por unas ojeras que también son inmensas, redondas, negrísimas, pero opacas. Este consorcio de los enormes ojos con las enormes ojeras, no es nada banal como te he dicho ya, sino que por el contrario, tanta negrura brillante asomada a tantísima negrura opaca viene siendo algo así como una tragedia espantosa de cinematógrafo de esas que pasan entre apaches con puñales en un cuarto oscuro. Y naturalmente que la intensa tragedia de los ojos, tiene una influencia directa sobre toda la persona física y moral de María Antonia. En el rostro, por ejemplo, la boca cerrada se tuerce siempre, sin saber por qué, y el observador al mirarla así, cerrada y torcida, busca al punto los ojos y se explica el fenómeno pensando: «son efectos de la tragedia». Lo mismo dice al considerar la sombra oscura que como una tinta misteriosa parece filtrarse de las pupilas y correr suavemente bajo la epidermis; y lo mismo repite al considerar el pelo negrísimo, y la voz, y las palabras, y el sentido de ellas, y los colores violentos y algo desavenidos, con que suele vestirse. Moralmente María Antonia es irreprochable. Yo lo sé porque Abuelita lo dice con bastante frecuencia a compás, separando imperceptiblemente las sílabas mientras separa al mismo tiempo cinco hilos de su calado: «I’rre’pro’cha’ble». Y la verdad, creo que en eso Abuelita tiene mucha razón. Una prueba palpable de ello es el culto apasionado y ferviente que María Antonia le profesa a la moral. No a la moral suya, lo cual sería horriblemente egoísta, sino a la moral en general, y sobre todo a esa moral delicada y sutil que se expone y peligra a todas horas adheridas a la conducta de las mujeres bonitas. Para observar las oscilaciones y salvar la integridad de esta faz concreta de la moral, María Antonia posee una actividad, un celo, una doble vista y un ardor de misionero que es verdaderamente admirable. Y he aquí, en síntesis, mi impresión general acerca de María Antonia, su psicología y sus ojos, tal como se me revelaron por primera vez aquella mañana y tal como los he seguido observando desde entonces. Ahora bien, tío Pancho Alonso que es sumamente disparatero suele decir refiriéndose a estos últimos:
 
+—«Los ojos de María Antonia están muy bien. Recuerdan mucho un par de botas de charol sin estrenar, y parecen hechos de una materia inflamable, ardiente y peligrosa, algo que oscila entre la dinamita y lo que el vulgo llama ‘envidia negra’. ¡Ah!, pero eso sí; muy negra, muy limpia, muy brillante: ¡muy bien embetunada!...».
 
+Por supuesto, Cristina, que yo no acepto esos términos de zapatería al hablar de unos ojos, y te ruego a ti que tampoco los tomes en consideración. Son disparates de tío Pancho, que con su mala lengua todo lo mezcla y lo confunde.
 
-El viaje de Macuto a Caracas, Cristina, es una atrevida excursión por la
-montaña, que dura casi dos horas. Para hacer esta excursión escalan la mon­
-taña y se la disputan juntos la carretera y el tren. El tren que es pequeñito
-y angosto, corre sobre unos rieles muy unidos, y para correr sobre ellos tie­
-ne rastreos ondulantes de serpiente y a ratos tiene también audacias de
-águila. Hay veces que se desliza entre lo más oscuro y verde de la monta­
-ña y cuando se piensa que sigue escondido aún entre las malezas y las ro­
-cas que están a la falda del monte, aparece de pronto sobre un picacho,
-animoso y valiente, con su penacho de humo. Antes de emprender el vuelo
-anda primero junto al mar muy cerquita de las olas, entra por los aleda­
-ños de La Guaira y del vecino pueblo de Maiquetía, da unos cuantos ro­
-deos indecisos y es después cuando se lanza a conquistar la montaña.
- La carretera, que es más franca y menos audaz que el tren, camina tam­
-bién un rato junto al mar y los rieles, pasa por los dos pueblos, se aparta
-luego de todos y entonces ella sola en blancas espirales va enlazando la mon­
-taña con su cinta de polvo.
- Cuando empezamos la ascensión tío Pancho me advirtió que aquella mon­
-taña que íbamos a escalar, estaba formada por un brazo de los Andes; y al
-momento el paisaje se cubrió para mis ojos de un inmenso prestigio. A decir
-verdad, el aspecto de la montaña es tan grandioso que no desdice en nada
-de su filiación. Es arrogante, misteriosa y altísima. Sus cimas dominan a
-Caracas y la separan del mar. Vista desde la ciudad cambia de color varias
-veces al día, condescendiente a los caprichos de la atmósfera que la rodea.
-Estos cambios y caprichos le han dado un carácter muy suyo y para inter­
-pretárselo, la copian con amor todos los pintores, la cantan con más amor
-aún todos los poetas y en recuerdo al conquistador que la tomó a los indios
-en no sé qué fecha se llama de su nombre «E l Avila».
- Desde que salimos de Macuto, con la brisa azotándome el rostro, yo tenía
-una inquieta curiosidad por sentir muy de cerca el alma del paisaje ameri­
-cano y me di a buscarle con cariño en todos los detalles del trayecto.
- Luego de correr junto al mar y atravesar La Guaira y los arrabales del
-pueblo de Maiquetía, pasamos junto a los cocales que se extienden allí cer­
-ca por la playa, y desde aquel momento atrajeron mis ojos y conquistaron
-mi atención los cocoteros.
- Es indudable: para mí, Cristina, todo el encanto, toda la dulce languidez
-del alma tropical se mece en los cocoteros. Cuando son muchos y se pasa
-junto a ellos, tienen vaivenes de hamaca, desperezos de siesta y susurros de
-abanico. El mar se clarea siempre allá en el fondo, y a través de tantos ta­
-llos que se retuercen y se encogen con actitudes de dolor humano, en aque­
-lla perspectiva que está a la vez poblada y desierta como una iglesia vacía,
-hay una paz intensa en donde sólo vibra la nota azul del mar suave y le­
-jana como un ensueño. Cuaíido se va subiendo una montaña y se ven los co­
-coteros de arriba, sus cabezas desmelenadas sobre la finura del tallo pare­
-cen alfileres erizados en un acerico, que es la playa. Si el cocotero es uno
-solo y se mira a distancia, en pleno aislamiento, erguido frente al mar, tie­
-ne la melancolía de un solitario que medita, y la inquietud de un centinela
-escudriñando el horizonte; sus palmas desgajadas en el espacio a tan larga
-distancia de la tierra parecen flores puestas en un búcaro de pie muy largo.
-Si se mira de tan lejos que lo etéreo del tallo se ha perdido en la atmósfera,
- aquellas hojas flotando en el ambiente, tienen entonces el misterio de un
-jirón de incienso que sube, y parecen evocar el símbolo místico de las ora­
-ciones abriendo sus tesoros junto al cielo.
- Mientras íbamos escalando la montaña me perdía yo en estas contempla­
- ciones sin pensar ya en La Guaira, que habíamos dejado atrás, cuando de
- pronto, en una brusca revuelta del camino, allá, bajo nuestros pies, en el
- fondo del abismo, apareció de golpe, pero tan chiquita, tan chiquita, que
- con todas sus casas, sus vapores, sus barquitas, y sus lanchas, parecía ya tan
- sólo un juguete de niños. Allí, en aquel mundo diminuto se hallaba tam­
- bién nuestro vapor que iba a zarpar al caer de la tarde. Desde mis alturas
- me pareció elegante y fino como una gaviota que se dispone a volar, y du­
- rante un rato tuve una envidia infinita por su vida aventurera. . . ¡Ah!
- ¡él se marcharía ahora a uno y otro, y otro puerto, siempre animado y ac­
- tivo, y nunca jamás sentiría como yo la aridez de los reposos finales, de­
- finitivos! . . .
- Estas fueron mis últimas consideraciones «marinas» porque en otra brus­
- ca revuelta de la carretera se volvió a perder La Guaira tan repentinamente
- como había aparecido antes; luego de caminar un rato acabó por esfumarse
- también la estrecha cinta azul que nos quedaba de mar, y entre abismos y
- rocas nos metimos ya definitivamente en el corazón de la montaña. Por ella
- anduvimos mucho rato subiendo y bajando hasta que poco a poco se alla­
- naron los abismos, se aplanó el camino, apareció el valle, y entramos en
- los arrabales de Caracas.
- Yo acababa de empolvarme, de pintarme, y de arreglar en general los des­
- perfectos ocasionados por el viaje en mi rostro y mi sombrero, iba de nuevo
- calzándome los guantes, y mientras tal hacía miraba el sucederse de las ca­
-lles y me preguntaba: ¿Pero cuándo entramos por fin en la ciudad?. . .
-Tras de mí, tío Pancho, adivinó al momento mi pregunta porque advirtió
-de su cuenta, sin que yo nada hubiese dicho: Esto es ya el centro de Ca­
-racas, María Eugenia.
- ¿El centro de Caracas?. . . ¡El centro de Caracas!. . . y entonces. . . ¡qué
-se habían hecho las calles de mi infancia, aquellas calles tan anchas, tan lar­
-gas, tan elegantes y tiradas a cordel?. . . ¡Ah! Cristina ¡qué intactas habían
-vivido siempre en mi recuerdo las fachadas por el enrejado de las ventanas
-salientes, se extendían a uno y otro lado de las calles desiertas, angostas y
-muy largas. La ciudad parecía agobiada por la montaña, agobiada por los ale­
-ros, agobiada por los hilos del teléfono, que pasaban bajos, inmutables, ra­
-yando con un un sinfín de hebras el azul vivo del cielo y el gris indefinido
-de unos montes que se asomaban a lo lejos sobre algunos tejados y por en­
-tre todas las bocacalles. Y como si los hilos no fuesen suficiente, los postes
-del teléfono abrían también importunamente sus brazos, y, fingiendo cruces
-en un calvario larguísimo, se extendían uno tras otro, hasta perderse allá,
-en los más remotos confines de la perspectiva... ¡Ah! ¡ s í ! . . . Caracas, la
-del clima delicioso, la de los recuerdos suaves, la ciudad familiar, la ciudad
-íntima y lejana, resultaba ser aquella ciudad chata. . . una especie de ciudad
-andaluza, de una Andalucía melancólica, sin mantón de Manila ni casta­
-ñuelas, sin guitarras ni coplas, sin macetas y sin flores en las rejas. . . una
-Andalucía soñolienta que se había adormecido bajo el bochorno de los
- trópicos.
- No obstante, mientras así juzgaba deprimida corriendo a toda prisa por
-las calles, bruscamente, en una u otra parte, como un chispazo de luz ines­
- perado, aparecía el prodigio de una ventana abierta, y en la ventana, tras la
- franqueza de la reja ancha, eran bustos, ojos, espejos, arañas rutilantes, pal­
- meras, flores, toda una alegría intensa e interior que se ofrecía generosa­
- mente a la tristeza de la calle. . .
- ¡Ah! ¡la fraternidad, y el cariño y la bienvenida, y el abrazo familiar de
- las ventanas abiertas!... ¿Pero cuál e r a ? ... ¿cuál e r a ? ... ¿cuál era por
- fin la casa de Abuelita?. . .
- Y de pronto, ante una casa ancha, pintada de verde, con tres grandes ven­
- tanas cerradas y severas, se detuvieron los autos. Mis primos bajaron a toda
- prisa, penetraron en el zaguán, empujaron la entornada puerta del fondo,
- y fue entonces cuando apareció ante mis ojos el patio claro, verde y flore­
- cido de la casa de Abuelita.
- Era la primera impresión deslumbrante que recibía a mi llegada a Ve­
- nezuela. Porque el patio de esta casa, Cristina, este patío que es el hijo, y el
- amante, y el hermano de tía Clara, cuidado como está con tanto amor, tie­
- ne tiempre para el que llega, yo no sé qué suave unción de convento, y
- una placidez hospitalaria, que se brinda y se ofrece en los brazos abiertos
- de sus sillones de mimbre. Sobre la tierra fresca del medio, crecen todo
- el año rosas, palmas, novios, heliotropos, y el jazminero, el gran jazminero
-amable que subido en el kiosco todo lo preside y saluda siempre a las visi­
-tas con su perfume insistente y obsequioso. Junto a la puerta de entrada, a
-la izquierda, por el amplio corredor, se esparcen abundantes sobre mesas
-y columnas, la espuma verde de los helechos y las flechas erectas y entre­
-abiertas de los retoños de palma. Al entrar aquella tarde y mirar el patio
-busqué por todas partes con los ojos, y fue a través de este bosquecillo ver­
-de, allá en el fondo del corredor, encuadrada por el respaldar de su sillón
-de mimbre, donde reconocí por fin la blanca cabeza de Abuelita.
- Viendo entrar a mis primos, se había puesto instantáneamente en pie y
-al distinguirme de lejos en el grupo que avanzaba, me llamó a gritos con la
-voz y con el temblor maternal de sus brazos abiertos:
+Cuando mis primos y yo dimos por terminados los mutuos saludos y cumplimientos, fuimos a visitar el vapor. Lo recorrimos varias veces en distintas direcciones y luego de sentirnos ya cansados, acaloradísimos y muy buenos amigos, bajamos todos a tierra. Cuando estábamos aún estacionados a las puertas de la aduana, esperando no sé qué, de golpe, como una exhalación envuelta por una nube de polvo, pasó un automóvil bastante deteriorado y mis primos al mirarle cruzar frente a nosotros gritaron todos a una:
+
+—¡Es Don Pancho Alonso! ¡Don Pancho! ¡Don Pancho! –Y se pusieron a hacer señas al automóvil que se detuvo y comenzó a andar hacia atrás.
+
+¡Por fin aparecía tío Panchito!
+
+Mientras ellos seguían con sus señas y sus voces, yo corrí a toda prisa en sentido contrario al auto que retrocedía, llegué hasta él, abrí ágilmente la portezuela, y entonces, delgado, canoso, paternal, risueño, afeitado, oloroso a *brandy*, cariñosísimo, vestido de nuevo, y muy diferente a lo que yo recordaba, junto al automóvil empolvado y viejo, con los brazos y con toda el alma me estrechó un largo rato tío Pancho Alonso.
+
+Luego que nos hubimos abrazado los dos a nuestra entera satisfacción, y luego que él, alegre y sorprendidísimo de encontrarme tan bonita, me lo dijo con una diversidad de flores que eran un encanto, dado lo muy acertadas y a mi gusto que resultaron todas, se fue a saludar a los demás. Por cierto que mientras se saludaban ocurrió entre ellos un pequeño incidente bastante original, que pobló de consecuencias todo el resto del día.
+
+Y es que pasa, Cristina, que mis cuatro primos a más de poseer nombres dobles, cosa que los mezcla y los confunde mucho, gozan además por otros respectos de la uniformidad más absoluta. Todos se parecen. No sólo en el físico, sino en la identidad de los puntos de vista, en el sistema de enfocar sus imaginaciones, y en el vocabulario empleado para expresar sus ideas. De ahí que al hablar coincidan siempre unos con otros, tanto en el fondo como en la forma de sus opiniones, pero de un modo tan exacto que si por circunstancias esta coincidencia, en vez de ser simultánea es sucesiva, resulta una especie de letanía absolutamente crispante.
+
+Ocurrió, pues, que luego de abrazamos efusivamente, mientras tío Pancho y yo caminábamos juntos el cortísimo espacio que separaba el automóvil de la aduana, mis primos, uno tras otro, nos fueron saliendo al encuentro y cada uno de ellos, antes o después de saludar, hizo más o menos, con ligerísimas modificaciones, la siguiente observación:
+
+—¡Caramba! ¡Y qué elegante se puso Don Pancho para recibir a la sobrina!; ¡vestido de *tussor* nuevo!...
+
+Así dijo el primero; dijo el segundo, dijo el tercero; pero al decir el cuarto, tío Pancho, que realmente, según he visto después, se hallaba en aquel momento, y en honor mío, de una inusitada elegancia, ante tan gran insistencia perdió por completo el dominio de sus nervios. Con un movimiento rápido que le es muy peculiar, se puso los dos brazos en jarras sobre la flamante chaqueta de *tussor*, y como si los demás, precedidos ya solemnemente por tío Eduardo y María Eugenia, estuviesen todos sordos, me interrogó muy serio contemplándome de hito en hito:
+
+—Dime: ¿tú habías visto nunca un arreo en donde todos los burros pasaran rebuznando al mismo tiempo?
+
+Yo miré el traje nuevo de tío Pancho, su expresión, sus brazos en jarras, la cara de mis tíos, la de mis primos, y me pareció todo tan cómico que sin decir ni sí ni no, reventé en una sonora carcajada. Al oírme reír uno de los del arreo, protestó al momento muy ofendido:
+
+—¡Qué poca corriente tiene, Don Pancho!
+
+María Antonia por su lado le dijo a tío Eduardo con la tragedia de los ojos que daba miedo:
+
+—¿Tú ves?... ¡Si es que son unas groserías que no se pueden aguantar!...
+
+Y sin más quedó establecida la discordia.
+
+No obstante, mis primos, que son poco rencorosos, acabaron por olvidar el agravio. Tío Pancho nos llevó en automóvil a pasear por Macuto y sus alrededores, nos obsequió varias veces con *cocktails* y aceitunas, nos regaló dulces, y como en entretanto a propósito de cuanto veíamos decía cosas divertidísimas, cuando llegó la hora del almuerzo, entre mis primos y él se había establecido ya un acuerdo.
+
+Pero no pareció ocurrir lo mismo con María Antonia. Al sentarnos a la mesa, ella tomó al punto la palabra, y con una voz gutural y solemne, que ante el gran público de vasos, platos, jarros, botellas, cuchillos y tenedores del hotel, casi vacío, resultaba muy ciceroniana y muy bien, reprendió severamente a sus hijos por haber tomado *cocktails*, y habló horrores del alcohol en general deteniéndose muy especialmente en el *brandy* y el *whisky*, bebidas que, según he visto después, son por desgracia las dos amigas predilectas de tío Pancho.
+
+Este discurso antialcohólico me habría impresionado vivamente en contra de los *cocktails*, a no mediar las contestaciones escépticas y un tanto irreverentes que dio tío Pancho mientras se bebía a sorbos un vaso de cerveza con hielo. Sí; Cristina, tío Pancho es insensible al fuego magnético de la elocuencia; lo comprobé aquel día y desde entonces lo considero completamente inmovilizable. ¡Ah! sí; yo creo firmemente que tío Pancho nunca, jamás, hubiera formado parte de esas falanges gloriosas, orgullo de la humanidad, que encendidas de entusiasmo a través de los siglos, han seguido a Demóstenes, a Pedro el Ermitaño, a San Francisco, a Lutero, a Mirabeau, y a Gabriel d' Annunzio...
+
+Después de hablar de los *cocktails* y del alcohol se habló de París, y María Antonia dijo:
+
+—Me hace el efecto de una gran casa de corrupción que estuviera suelta por las calles. Una mujer honrada y que se estime, no puede andar sola en París ¡porque se ven horrores! ¡horrores!
+
+Y en señal de horror se llevó la mano derecha sobre los ojos...
+
+Intrigada y llena de curiosidad, yo me quedé un gran rato con la mirada fija sobre un pedazo de pan evocando uno tras otro, los bulevares de París, a fin de contemplar aquellos horrores con la imaginación, ya que no podía contemplarlos con los ojos. Pero no lograba recordar ninguno y tío Pancho acabó al fin por sacarme de mi abstracción con este discurso original y un tanto paradójico:
+
+—¡Reniego de los trasatlánticos que establecen comunicaciones con Europa! Creo que como Hernán Cortés, todos los conquistadores debieron tomar la precaución de quemar sus naves inmediatamente después de desembarcar, a fin de evitar cualquier tentativa de retorno. De este modo viviríamos aquí siempre contentos como viven las ranas de los charcos, que nunca están de mal humor porque carecen del concepto «peor» y sobre todo del concepto «mejor» fuente de casi todas las desgracias humanas. Sí; establecidos bajo el sol de los trópicos después de haber robado y asesinado patriarcalmente a todos los indios, debimos evitar con prudencia las nefastas influencias europeas. Disfrutaríamos así alegremente de uno de los más benignos climas del mundo, nos comeríamos ahora con delicia las frutas de esa compotera que son bastante jugosas y perfumadas, nos adornaríamos con las plumas maravillosas de nuestros pájaros, y dormiríamos en hamaca que es sin duda ninguna la más fresca y mullida de las camas. De resultas de tan sabia política no habría habido Guerra de la Independencia, Bolívar no hubiera tenido ocasión de distinguirse en ella como Libertador, y a estas horas los periódicos no nos atormentarían diariamente celebrando nuestras glorias patrias con esa profusión de hipérboles, redundancias, y adjetivos de malísimo gusto; quizás no existieran tampoco los periódicos lo cual sería ya el colmo del bienestar. Por mi parte, yo no hubiera tenido la posibilidad de instalarme en París hace cosa de treinta años, y no habría gastado hasta el último céntimo de mi fortuna regalando collares de perlas, sombreros de dos mil francos, y perros premiados, cosas que me parecen ahora completamente superficiales. ¡Ah! sí; digan lo que quieran yo detesto los antiguos buques de vela y detesto muchísimo más aún los modernos trasatlánticos. Los considero el origen de nuestras desgracias. Pero en fin, después de todo me conformo con los buques de vela y quisiera haber nacido en la época feliz de la Colonia, allá, cuando nuestras bisabuelas y tatarabuelas atravesaban las calles empedradas de Caracas en sillas de mano, llevadas por dos esclavos que eran siempre fieles, negrísimos y robustos, porque no habían sido contaminados aún con los vicios y las pretensiones de la raza blanca.
+
+—Verdaderamente –dijo el menor de mis primos–, yo creo que debe ser muy agradable andar en silla de mano. ¡Será algo así como ir caminando por el aire sin tocar el suelo! Lo malo es que se debía andar despacísimo. ¡Ah! ¡Qué diferencia ahora con el automóvil!
+
+—No lo creas, hijo mío –dijo tío Pancho–. Era muchísimo mejor sistema el de la silla de mano. En primer lugar se economizaban los cauchos y la gasolina, por otro lado había menos choques, y en cuanto al tiempo gastado en el trayecto eso no tenía entonces la menor importancia. Para nuestros bisabuelos lo mismo era llegar temprano que llegar tarde, o que no llegar nunca. La manía de llegar pronto es relativamente moderna y el más terrible azote con que nos mortifica a todos la civilización.
+
+María Antonia, cuyo pudor se había herido vivamente por el cinismo que encerraban los collares, los sombreros, y los perros premiados, volvió a tomar la voz ciceroniana y dijo refiriéndose a la imagen de las ranas:
+
+—No comprendo por qué razón no hemos de ir a Europa. Yo a Dios gracias, no me considero rana, ni creo que Venezuela sea ningún charco. Tenemos nuestros defectos, es verdad, como allá también tienen los suyos, pero en todas partes, aun en el mismo París, hay gente muy honrada y muy buena con quien se puede tratar. Pero los que van de aquí no tratan sino con la escoria, y creen que eso es lo elegante y lo que debe ser. Cuando yo fui a Europa recién casada, me distraje mucho: ¡como se distrae la gente decente, eso sí! ¡Eduardo me cuidaba muchísimo! Eduardo no me llevó jamás a ciertos teatros donde van ahora muchas niñas suramericanas; Eduardo no me dejaba salir sola; Eduardo no me permitía de ningún modo que bailara; ni que tuviera intimidad con nadie; ni que me pintara; ni que me pusiera vestidos indecentes: ¡aunque estuvieran muy de moda! ni que...
+
+Y mientras seguía la enumeración, yo, ladeé ligeramente la cabeza, porque en el centro de la mesa, la compotera, colmada de frutas y de flores me ocultaba a «Eduardo» sentado frente a mí y me urgía muchísimo contemplar a mi sabor aquel busto de Otelo. Pero desgraciadamente, allende la compotera, Otelo, no parecía estar en carácter, circunstancia que le quitó colorido a la enumeración. En aquel momento psicológico se hallaba tranquilamente con el tenedor en la mano derecha, un pedacito de pan en la mano izquierda, y los ojos clavados en su plato muy ocupado en quitarle las espinas a su porción de pescado. Y como terminase al punto tan delicada empresa se llevó a la boca el tenedor cargado de blanquísima pulpa, la saboreó, la tragó, esperó pacientemente a que María Antonia rematase su discurso y dijo entonces con un hilillo sutil de mayonesa prisionero entre dos hilos de su bigote:
+
+—¡Pues yo encuentro que el pescado está fresquísimo! Me parece exquisito, muy bien preparado y no comprendo por qué en Caracas no hemos de comerlo así. María Antonia: es indudable que la cocinera nos roba, convéncete. Por el afán de robar, compra siempre el pescado peor; ¡el que nadie quiere! Pues ahora al pasar por La Guaira voy a hablar con el encargado del depósito, y si me dejan el pescado a precio de costo en Caracas lo voy a encargar fijo para tres días en la semana. Si te parece, la cocinera misma puede pasar a buscarlo cuando vuelva del mercado empleando la misma correspondencia de tranvía que toma siempre para llegar hasta casa.
+
+María Antonia, cuyo plano mental se hallaba ahora muy distante del pescado, la cocinera, y el tranvía, contestó indignada:
+
+—¡Julia la martiniqueña no nos roba en absoluto! ¡Me consta que es honradísima! ¡Y encuentro muy malo este pescado! La mayonesa está hecha con un aceite infernal; ¡qué diferencia con el que tomamos en casa!
+
+—Pues a mí, lo mismo que a Papá, me parece muy bueno el pescado, –dijo mi prima con cierta melancolía– pero no me lo como porque vi al trasluz mi tenedor y deja mucho que desear... y es inútil que pida otro... los cubiertos de los hoteles: ¡siempre están sucios!... Y es que no los lavan sino que los limpian con un paño ¡lo vi ahora al pasar!...
+
+—Oye un consejo, hija mía –dijo tío Pancho muy condolido–; nunca veas los cubiertos ni nada a trasluz. En la comida lo mismo que en todo lo demás el afán investigador no nos conduce sino a descubrimientos desagradables. Las personas más felices serán siempre aquellas que hayan descubierto menos cosas durante su vida. Te hablo por experiencia. Mira, desde que yo he perdido la vista lo suficientemente para confundir una mosca con un grano de pimienta, tengo mejor humor y muchísima mejor digestión.
+
+—¡Ay! ¡Confundir una mosca con un grano de pimienta! ¡Comerse una mosca! ¡Qué horror! ¡Qué horror! –dijeron a la vez casi todos mis primos.
+
+Pero tío Pancho en un nuevo discurso muy bien documentado, y un poco paradójico también, nos demostró palpablemente los grandes perjuicios que ocasionan a la humanidad el microscopio, la higiene, las vacunas, la cirugía, y las academias de Medicina; cosas todas que según él suelen acabar con las personas verdaderamente robustas, conservando en cambio a los enfermizos, a los pobres, a los aburridos y a los desgraciados, seres infelices contra quienes se ensañan arbitrariamente al privarle de la muerte que es cosa tan natural e inofensiva.
+
+María Antonia que hierve todos los días el agua filtrada, y duerme todas las noches con mosquitero, se escandalizó naturalmente al oír tan horrible dislate. Con tal motivo se discutió; se habló después sin discutir; se tomó café; se volvió a discutir; se dio por terminado el almuerzo; paseamos entonces a pie por la playa; nos retratamos bajo unos árboles; y apaciguado ya el sol y repartidos en los dos autos emprendimos el camino de Caracas.
+
+Antes de subir al automóvil yo había advertido:
+
+—Quisiera ir delante con el *chauffeur* para ver mejor el camino.
+
+Y de nuevo, tras el volar del auto por la cinta blanca de la carretera, sobre los abismos y las montañas, en silencio, desde el templo interior de mi sensibilidad, me entregué a la contemplación, a la comunión íntima con la naturaleza, a las suaves evocaciones y al miedo voluptuoso de llegar...
+
+El viaje de Macuto a Caracas, Cristina, es una atrevida excursión por la montaña, que dura casi dos horas. Para hacer esta excursión escalan la montaña y se la disputan juntos la carretera y el tren. El tren que es pequeñito y angosto, corre sobre unos rieles muy unidos, y para correr sobre ellos tiene rastreos ondulantes de serpiente y a ratos tiene también audacias de águila. Hay veces que se desliza entre lo más oscuro y verde de la montaña y cuando se piensa que sigue escondido aún entre las malezas y las rocas que están a la falda del monte, aparece de pronto sobre un picacho, animoso y valiente, con su penacho de humo. Antes de emprender el vuelo anda primero junto al mar muy cerquita de las olas, entra por los aledaños de La Guaira y del vecino pueblo de Maiquetía, da unos cuantos rodeos indecisos y es después cuando se lanza a conquistar la montaña.
+
+La carretera, que es más franca y menos audaz que el tren, camina también un rato junto al mar y los rieles, pasa por los dos pueblos, se aparta luego de todos y entonces ella sola en blancas espirales va enlazando la montaña con su cinta de polvo.
+
+Cuando empezamos la ascensión tío Pancho me advirtió que aquella montaña que íbamos a escalar, estaba formada por un brazo de los Andes; y al momento el paisaje se cubrió para mis ojos de un inmenso prestigio. A decir verdad, el aspecto de la montaña es tan grandioso que no desdice en nada de su filiación. Es arrogante, misteriosa y altísima. Sus cimas dominan a Caracas y la separan del mar. Vista desde la ciudad cambia de color varias veces al día, condescendiente a los caprichos de la atmósfera que la rodea. Estos cambios y caprichos le han dado un carácter muy suyo y para interpretárselo, la copian con amor todos los pintores, la cantan con más amor aún todos los poetas y en recuerdo al conquistador que la tomó a los indios en no sé qué fecha se llama de su nombre «El Ávila».
+
+Desde que salimos de Macuto, con la brisa azotándome el rostro, yo tenía una inquieta curiosidad por sentir muy de cerca el alma del paisaje americano y me di a buscarle con cariño en todos los detalles del trayecto.
+
+Luego de correr junto al mar y atravesar La Guaira y los arrabales del pueblo de Maiquetía, pasamos junto a los cocales que se extienden allí cerca por la playa, y desde aquel momento atrajeron mis ojos y conquistaron mi atención los cocoteros.
+
+Es indudable: para mí, Cristina, todo el encanto, toda la dulce languidez del alma tropical se mece en los cocoteros. Cuando son muchos y se pasa junto a ellos, tienen vaivenes de hamaca, desperezos de siesta y susurros de abanico. El mar se clarea siempre allá en el fondo, y a través de tantos tallos que se retuercen y se encogen con actitudes de dolor humano, en aquella perspectiva que está a la vez poblada y desierta como una iglesia vacía, hay una paz intensa en donde sólo vibra la nota azul del mar suave y lejana como un ensueño. Cuando se va subiendo una montaña y se ven los cocoteros de arriba, sus cabezas desmelenadas sobre la finura del tallo parecen alfileres erizados en un acerico, que es la playa. Si el cocotero es uno solo y se mira a distancia, en pleno aislamiento, erguido frente al mar, tiene la melancolía de un solitario que medita, y la inquietud de un centinela escudriñando el horizonte; sus palmas desgajadas en el espacio a tan larga distancia de la tierra parecen flores puestas en un búcaro de pie muy largo. Si se mira de tan lejos que lo etéreo del tallo se ha perdido en la atmósfera, aquellas hojas flotando en el ambiente, tienen entonces el misterio de un jirón de incienso que sube, y parecen evocar el símbolo místico de las oraciones abriendo sus tesoros junto al cielo.
+
+Mientras íbamos escalando la montaña me perdía yo en estas contemplaciones sin pensar ya en La Guaira, que habíamos dejado atrás, cuando de pronto, en una brusca revuelta del camino, allá, bajo nuestros pies, en el fondo del abismo, apareció de golpe, pero tan chiquita, tan chiquita, que con todas sus casas, sus vapores, sus barquitas, y sus lanchas, parecía ya tan sólo un juguete de niños. Allí, en aquel mundo diminuto se hallaba también nuestro vapor que iba a zarpar al caer de la tarde. Desde mis alturas me pareció elegante y fino como una gaviota que se dispone a volar, y durante un rato tuve una envidia infinita por su vida aventurera... ¡Ah! ¡Él se marcharía ahora a uno y otro, y otro puerto, siempre animado y activo, y nunca jamás sentiría como yo la aridez de los reposos finales, definitivos!...
+
+Estas fueron mis últimas consideraciones «marinas» porque en otra brusca revuelta de la carretera se volvió a perder La Guaira tan repentinamente como había aparecido antes; luego de caminar un rato acabó por esfumarse también la estrecha cinta azul que nos quedaba de mar, y entre abismos y rocas nos metimos ya definitivamente en el corazón de la montaña. Por ella anduvimos mucho rato subiendo y bajando hasta que poco a poco se allanaron los abismos, se aplanó el camino, apareció el valle, y entramos en los arrabales de Caracas.
+
+Yo acababa de empolvarme, de pintarme, y de arreglar en general los desperfectos ocasionados por el viaje en mi rostro y mi sombrero, iba de nuevo calzándome los guantes, y mientras tal hada miraba el sucederse de las calles y me preguntaba: ¿Pero cuándo entramos por fin en la ciudad?... Tras de mí, tío Pancho, adivinó al momento mi pregunta porque advirtió de su cuenta, sin que yo nada hubiese dicho: —Esto es ya el centro de Caracas, María Eugenia.
+
+¿El centro de Caracas?... ¡El centro de Caracas!... y entonces... ¡qué se habían hecho las calles de mi infancia, aquellas calles tan anchas, tan largas, tan elegantes y tiradas a cordel?... ¡Ah! Cristina ¡qué intactas habían vivido siempre en mi recuerdo, y qué cruelmente las desfiguraba de pronto la malvada, la infame evidencia!...
+
+Unas casas de un solo piso, chatas, oprimidas bajo los aleros, adornadas las fachadas por el enrejado de las ventanas salientes, se extendían a uno y otro lado de las calles desiertas, angostas y muy largas. La ciudad parecía agobiada por la montaña, agobiada por los aleros, agobiada por los hilos del teléfono, que pasaban bajos, inmutables, rayando con un sinfín de hebras el azul vivo del cielo y el gris indefinido de unos montes que se asomaban a lo lejos sobre algunos tejados y por entre todas las bocacalles. Y como si los hilos no fuesen suficientes, los postes del teléfono abrían también importunamente sus brazos, y, fingiendo cruces en un calvario larguísimo, se extendían uno tras otro, hasta perderse allá, en los más remotos confines de la perspectiva... ¡Ah! ¡sí!... Caracas, la del clima delicioso, la de los recuerdos suaves, la ciudad familiar, la ciudad íntima y lejana, resultaba ser aquella ciudad chata... una especie de ciudad andaluza, de una Andalucía melancólica, sin mantón de Manila ni castañuelas, sin guitarras ni coplas, sin macetas y sin flores en las rejas... una Andalucía soñolienta que se había adormecido bajo el bochorno de los trópicos.
+
+No obstante, mientras así juzgaba deprimida corriendo a toda prisa por las calles, bruscamente, en una u otra parte, como un chispazo de luz inesperado, aparecía el prodigio de una ventana abierta, y en la ventana, tras la franqueza de la reja ancha, eran bustos, ojos, espejos, arañas rutilantes, palmeras, flores, toda una alegría intensa e interior que se ofrecía generosamente a la tristeza de la calle...
+
+¡Ah! ¡la fraternidad, y el cariño y la bienvenida, y el abrazo familiar de las ventanas abiertas!... ¿Pero cuál era?... ¿cuál era?... ¿cuál era por fin la casa de Abuelita?...
+
+Y de pronto, ante una casa ancha, pintada de verde, con tres grandes ventanas cerradas y severas, se detuvieron los autos. Mis primos bajaron a toda prisa, penetraron en el zaguán, empujaron la entornada puerta del fondo, y fue entonces cuando apareció ante mis ojos el patio claro, verde y florecido de la casa de Abuelita.
+
+Era la primera impresión deslumbrante que recibía a mi llegada a Venezuela. Porque el patio de esta casa, Cristina, este patio que es el hijo, y el amante, y el hermano de tía Clara, cuidado como está con tanto amor, tiene siempre para el que llega, yo no sé qué suave unción de convento, y una placidez hospitalaria, que se brinda y se ofrece en los brazos abiertos de sus sillones de mimbre. Sobre la tierra fresca del medio, crecen todo el año rosas, palmas, novios, heliotropos, y el jazminero, el gran jazminero amable que subido en el kiosco todo lo preside y saluda siempre a las visitas con su perfume insistente y obsequioso. Junto a la puerta de entrada, a la izquierda, por el amplio corredor, se esparcen abundantes sobre mesas y columnas, la espuma verde de los helechos y las flechas erectas y entreabiertas de los retoños de palma. Al entrar aquella tarde y mirar el patio busqué por todas partes con los ojos, y fue a través de este bosquecillo verde, allá en el fondo del corredor, encuadrada por el respaldar de su sillón de mimbre, donde reconocí por fin la blanca cabeza de Abuelita.
+
+Viendo entrar a mis primos, se había puesto instantáneamente en pie y al distinguirme de lejos en el grupo que avanzaba, me llamó a gritos con la voz y con el temblor maternal de sus brazos abiertos:
+
  ¡Mi hija, mi hija, mi hijita!
  Y no quiero detallarte, Cristina, cómo, ni cuántos, fueron los abrazos y
 los besos que entre lágrimas me dio Abuelita, y me dio luego tía Clara,
