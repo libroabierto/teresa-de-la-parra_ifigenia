@@ -114,7 +114,7 @@ Los hombres, sentados sobre cubierta, con la gorra de lana encajada hasta las ce
 
 Pasadas las primeras horas de travesía comencé pronto a tener amigos a más de mis acompañantes los Ramírez. Pero el más interesante de mis amigos resultó ser un poeta colombiano, ex diplomático, viudo y ya algo viejo, el cual, lleno de galantería, finura y entusiasmo me acompañaba a todas horas del día. Por la noche, cuando tocaban o cantaban en el salón, yo, en consideración a mi duelo, solía evadirme del bullicio, y buscaba algún solitario rincón de cubierta y allí, arrullada por la música y apoyada de codos en la barandilla, me daba a contemplar el reflejo fantástico de la luna sobre el mar y aquella estela blanca que íbamos dejando en el azul oscuro de las aguas. Mi amigo, que tenía la delicadeza de notar siempre mi ausencia, a los pocos minutos se venía a mi lado, se apoyaba también de codos en la barandilla y entonces suavemente, en un monótono silbar de eses, me recitaba sus versos. Esto me ponía encantada. No porque los versos fuesen muy bonitos, puesto que a decir verdad jamás les puse la menor atención, sino porque estando libre de toda conversación, mientras él recitaba, yo me entregaba de lleno a mis propios pensamientos y me decía: «No cabe duda que está enamoradísimo de mí». Y como era la primera vez que esto me ocurría y como el ambiente de la noche era de los más propicios, me lanzaba en alas de mis recuerdos a través de aquellas novelas de *La Mode Illustrée* que leíamos en vacaciones tú y yo, me comparaba inmediatamente con las más interesantes de sus heroínas, me consideraba situada al mismo nivel de ellas o quizás a mayor altura, y claro, ante semejante visión quedaba tan satisfecha, que cuando mi amigo terminaba la última estrofa de sus versos, yo los elogiaba apasionadamente con la más entusiasta y sincera admiración.
 
-Si la amistad entre mi amigo y yo no hubiera pasado nunca de ahí, todo habría quedado muy bien, él hubiese adquirido a mis ojos un eterno prestigio, y después de separarnos yo lo habría contemplado siempre entre la bruma de mis recuerdos, esfumándose allá, en lontananza, junto al mar y la  luna como en un dulce ensueño de romanticismo y de melancolía. Cristina, los hombres no tienen tacto. Aunque sean más sabios que Salomón y más  viejos que Matusalén no aprenden jamás esa cosa tan sencilla, fácil y elemental que se llama «tener tacto». Semejante experiencia la adquirí en el trato de mi amigo el poeta, ex diplomático, del vapor, quien, según parece era muy instruido, inteligente y discreto en cualquier otra materia que no se relacionase con ésta del tacto u oportunidad. Pero voy a referirte el incidente, de donde proviene este juicio o experiencia a fin de que tú misma opines.
+Si la amistad entre mi amigo y yo no hubiera pasado nunca de ahí, todo habría quedado muy bien, él hubiese adquirido a mis ojos un eterno prestigio, y después de separarnos yo lo habría contemplado siempre entre la bruma de mis recuerdos, esfumándose allá, en lontananza, junto al mar y la luna como en un dulce ensueño de romanticismo y de melancolía. Cristina, los hombres no tienen tacto. Aunque sean más sabios que Salomón y más viejos que Matusalén no aprenden jamás esa cosa tan sencilla, fácil y elemental que se llama «tener tacto». Semejante experiencia la adquirí en el trato de mi amigo el poeta, ex diplomático, del vapor, quien, según parece era muy instruido, inteligente y discreto en cualquier otra materia que no se relacionase con ésta del tacto u oportunidad. Pero voy a referirte el incidente, de donde proviene este juicio o experiencia a fin de que tú misma opines.
 
 Imagínate, que una noche en que se celebró a bordo no sé qué fecha patriótica, todos los pasajeros habían tomado *champagne* y se hallaban por lo tanto muy alegres. Yo en compensación, estaba de mal humor, porque al ir a prenderme un alfiler me había dado un arañazo larguísimo en la mano izquierda, cosa que me la tenía bastante desfigurada. Por consiguiente, aquella noche, con más razón que de costumbre, mientras los demás se divertían en el salón, fui a apoyarme de codos en mi solitario rincón de cubierta, y también, como de costumbre, al poco rato mi amigo, vino a situarse junto a mí. Debido a mi mal humor, yo, contemplando el mar iluminado por la luna, calculaba con rabia el número de días que iba a durar en mi mano la cicatriz del rasguño y no decía una palabra. Mi amigo, entonces, demostrando tener cierta delicadeza, en vez de lanzarse a recitar sus versos, me interrogó suavemente:
 
@@ -208,7 +208,7 @@ Figúrate que a la corta distancia con que suele dialogarse a bordo, junto a una
 
 Procuraba esconder tras una amable sonrisa aquella breve impresión o sentencia crítica tan poco halagüeña para quien la producía. Y con el objeto de disimular aún mejor, comencé a informarme de pronto por toda la familia. Le pregunté por Abuelita, tía Clara, su mujer, y sus hijos. Pero era inútil. Mi amable interrogatorio resultaba puramente maquinal. Mi pensamiento andaba tras de mis ojos, y mis ojos insaciables no se cansaban de escudriñarle de arriba abajo, mientras que en mis oídos, llenos ahora de verdad y de vida, parecían resonar de nuevo las palabras de Papá: «El imbécil de Eduardo»... «El mentecato de Eduardo»...
 
-Él, en su charla, desairada y sin vida, apoyado de espaldas en la baranda y con el rollo de cuerdas a sus pies, me dijo que todos en la familia deseaban muchísimo verme; que con el solo objeto de recibirme se había venido de Caracas desde la víspera en la mañana por estar anunciado el vapor para ese mismo día en la tarde; que por lo tanto, aquella noche había dormido en Macuto; que desde allí había visto pasar el vapor a eso de las siete; que de un momento a otro deberían llegar al muelle su mujer y sus cuatro hijos, los cuales habían salido en automóvil de Caracas hacía ya más de una hora; que era probable que por su lado viniese también tío Pancho Alonso, porque algo le había oído decir sobre el particular; que teniendo ciertos asuntos urgentes que despachar en La Guaira le parecía mejor el que almorzásemos todos juntos en Macuto; que como yo vería, Macuto era fresco, alegre y muy bonito; y que, finalmente, luego de almorzar subiríamos a Caracas donde me esperaban Abuelita y tía Clara  consumidas de impaciencia.
+Él, en su charla, desairada y sin vida, apoyado de espaldas en la baranda y con el rollo de cuerdas a sus pies, me dijo que todos en la familia deseaban muchísimo verme; que con el solo objeto de recibirme se había venido de Caracas desde la víspera en la mañana por estar anunciado el vapor para ese mismo día en la tarde; que por lo tanto, aquella noche había dormido en Macuto; que desde allí había visto pasar el vapor a eso de las siete; que de un momento a otro deberían llegar al muelle su mujer y sus cuatro hijos, los cuales habían salido en automóvil de Caracas hacía ya más de una hora; que era probable que por su lado viniese también tío Pancho Alonso, porque algo le había oído decir sobre el particular; que teniendo ciertos asuntos urgentes que despachar en La Guaira le parecía mejor el que almorzásemos todos juntos en Macuto; que como yo vería, Macuto era fresco, alegre y muy bonito; y que, finalmente, luego de almorzar subiríamos a Caracas donde me esperaban Abuelita y tía Clara consumidas de impaciencia.
 
 Y mientras esto decía era cuando yo lo miraba con aquella amable sonrisa, juzgándole feo, desairado y mal vestido. A pesar del gran embuste de la sonrisa, algo debía reflejar mi semblante porque de pronto él dijo:
 
@@ -364,900 +364,265 @@ Era la primera impresión deslumbrante que recibía a mi llegada a Venezuela. Po
 
 Viendo entrar a mis primos, se había puesto instantáneamente en pie y al distinguirme de lejos en el grupo que avanzaba, me llamó a gritos con la voz y con el temblor maternal de sus brazos abiertos:
 
- ¡Mi hija, mi hija, mi hijita!
- Y no quiero detallarte, Cristina, cómo, ni cuántos, fueron los abrazos y
-los besos que entre lágrimas me dio Abuelita, y me dio luego tía Clara,
-porque el detallarlos resultaría largo, monótono y repetido. Sólo te diré que
-hubo llanto, evocaciones, detallar minucioso de mi fisonomía, de mi cuerpo,
-de mis movimientos; nuevos besos, nuevas lágrimas, y el dulce nombre de
-mamá siempre repetido que me cubría como un velo y me transformaba
-en ella ante el cariño torrencial, efusivo, indescriptible de Abuelita y de
-tía Clara. Yo me sentía también sorprendida, emocionadísima, y para cor­
-tar la escena, conteniendo las lágrimas, con los ojos turbios comencé a ins­
-peccionarlo todo, arriba, abajo, y al ir reconociendo poco a poco las viejas
-cosas familiares me di a preguntar risueña por los predilectos de mi infancia:
- ¿Y los canarios, Abuelita?. . . ¿Y la gata negra. . . aquella. . . aque­
-lla del lazo colorado?. . . ¿Y los pescaditos de la pila?. . . ¡Toma!. . . pero
-si ya no hay pila ni hay naranjos en el patio: ¡no me había fijado!
- Tía Clara explicó:
- Todo está cambiado. La casa se reformó hace siete años antes de la
-muerte de Enrique. Mira: se quitó la pila, se puso el mosaico, se pintó
-al óleo, se decoró de nuevo, se cambió la romanilla del fondo; pero los na­
-ranjos añadió sonriendo nunca estuvieron aquí sino en el otro patio. . .
-¡y allá están todavía!
- Volví la cabeza para mirar la nueva romanilla del fondo, y a su puerta
-vi agrupadas las cabezas más o menos negras y lanudas de las cuatro fámulas
-que constituyen el servicio doméstico de Abuelita cuyos ojos me contem­
-plaban ávidos de curiosidad. Yo las abarqué a todas en una rápida ojeada
-indiferente. Pero como en la rapidez de la ojeada hubiese sentido la atrac­
-ción de unos ojos, volví a mirar de nuevo y entonces, iluminada ya por el
-vivo chispazo del recuerdo, lo mismo que había hecho Abuelita un mo­
-mento antes, yo también ahora, abrí efusivamente los brazos y corrí hacia
-la romanilla exclamando a voces alegrísima:
- ¡A h!. .. ¡Gregoria! ¡Gregoria!. . . ¡Pero si eres tú, viejita linda!. ..
- Y en un abrazo largo y fraternal de almas que se comprenden, Gregoria
-y yo sellamos de nuevo nuestra interrumpida amistad.
- Porque has de saber, Cristina, que Gregoria, la vieja lavandera negra de
-esta casa, contra el parecer de Abuelita y de tía Clara, es actualmente mi
-amiga, mi confidente y mi mentor, pues aun cuando no sepa leer ni escribir
-la considero sin disputa ninguna una de las personas más inteligentes y más
-sabias que he conocido en mi vida. Nodriza de mamá, se ha quedado desde
-entonces en la casa donde desempeña el doble papel de lavandera y cronista,
-dada su admirable memoria y su arte exquisito para planchar encajes y blan­
-quear manteles. Cuando yo era chiquita y me venía a pasar el día aquí en
-la casa de Abuelita, era Gregoria quien me daba siempre de comer, quien
-me contaba cuentos y quien a escondidas de todos me dejaba andar des­
-calza o jugar con agua, atendiendo de este modo al bienestar de mi cuerpo
-y de mi espíritu. Y es que su alma de poeta que desdeña los prejuicios hu­
-manos con la elegante displicencia de los Filósofos Cínicos, tiene para todas
-las criaturas la dulce piedad fraternal de San Francisco de Asís. Este libre
-consorcio le ha hecho el alma generosa, indulgente, e inmoral. Su desdén
-por las convenciones la preservó siempre de toda ciencia que no enseñara
-la misma naturaleza. Por esta razón, además de no saber leer ni escribir,
-Gregoria tampoco sabe su edad, que es un enigma para mí, para ella y para
-todo el que la ve. Blanqueando manteles y planchando camisas, mira correr
-el tiempo con la serena indiferencia con que se mira correr una fuente,
-porque ante sus ojos franciscanos, las horas, como las gotas de la hermana
-agua, forman juntas un gran caudal fresco y limpio por donde viene nadan­
-do la hermana muerte. Como te he dicho ya, cuando yo era chiquita, me
-cuidó siempre con la ternura poética con que se cuidan las flores y los ani­
-males. Por eso, aquella tarde, al reconocerla asomada a la puerta de la ro­
-manilla, corrí hacia ella movida por el mismo impulso que hace temblar
-de alegría y de felicidad la cola agradecida de los perros.
- Al sentirme entre sus brazos, Gregoria, cuyos sentimientos brotan siem­
-pre al exterior ensartados en los matices sonoros o delicadísimos de unas
-carcajadas especiales, sorprendida y feliz, salpicó un largo rato su risa inten­
-sa de emoción con estas pocas palabras:
- ¡Dios la guarde!. . . ¡Dios la guarde!. . . ¡Haberse acordado de su
-negra!. . . ¡de su negra fea!. . . ¡de su negra vieja!. . .
- Y tanto nos abrazamos, y tanto se rio Gregoria y tanto se prolongó la
-escena, que Abuelita tuvo que intervenir al fin:
- Bueno, Gregoria, ya basta: ¡hasta cuándo! ¡Que empiezas con la risa,
-y no acabas de reírte nunca!
- Y luego, cariñosa, Abuelita añadió dirigiéndose a mí:
- Ven tú, hijita, ven a quitarte el sombrero y a que te refresques un po­
-co. Ven, vamos a que veas tu cuarto.
- Apoyada ella en mi brazo y seguidas de todo el mundo atravesamos un
-pedazo de patio, cruzamos el comedor, y llegamos al segundo patio, aquí,
- al patio de los naranjos, donde se abre la puerta y la ventana de este cuar­
- to silencioso y cerrado con llave desde el cual te escribo ahora.
- En el umbral de la puerta nos detuvimos a mirarle.
- A primera vista me pareció sonriente con sus muebles claros y su ca-
- mita blanca. En aquella hora gris del crepúsculo llegaba a él, más intensa­
- mente que nunca, cierto encanto melancólico que parece desprenderse siem­
- pre de estos gajos verdes donde amarillean a veces las naranjas, y flotaba
- también en el ambiente ese olor a engrudo y a pintura fresca que tienen
- las habitaciones recién empapeladas. Inmóvil sobre el umbral, Abuelita, apo­
- yada en mi brazo, empezó a explicar:
- Este cuarto era el de Clara. Lo amueblé para ella tal como está ahora
-hace ya muchos años. . ., cuando se casó María, tu Mamá. Antes dormían
-las dos juntas en una habitación más grande que está cerca de la mía. Clara
-ha querido ahora cedértelo todo. Como los muebles son blancos y alegres,
- es más natural que sean para ti. . .
- Mira, interrumpió de golpe mi prima es un milagro que tía Cla­
-ra haya convenido en darte su cuarto y sus muebles. Con nosotros, antes,
-cuando veníamos aquí ¡era una exageración! No nos dejaba ni pasar si­
-quiera porque decía que echábamos a perder los muebles y que de tanto
-entrar y salir se llenaba de moscas la habitación.
- Tía Clara no contestó nada y Abuelita continuó:
- Sí; Clara te ha dejado su cuarto y se viene ahora cerca de mí al cuarto
-que era de su padre, de tu abuelo. Allí están todavía sus muebles, unos
-muebles de caoba muy cómodos y más serios que estos otros. . . Por supues­
-to que todo se pintó y se empapeló de nuevo para tu llegada. Mira, te pu­
-simos a los dos lados de la cama los retratos de tu Papá y de tu Mamá para
-que te acompañen siempre. Este tocador era también de Clara; ella misma
-lo vistió de nuevo. ¡No sabes lo que ha trabajado para terminar el bordado
-antes de tu llegada! Anoche a las doce: ¡estaba cosiendo todavía!. . .
- El tocador; los retratos; el flamante papel de las paredes; los muebles
-blancos; tía Clara; la observación de mi prima; todo me había ido produ­
-ciendo una emoción suave. Había en el arreglo del cuarto profusión de
-detalles que demostraban unan disposición minuciosa, un afán muy mar­
-cado de que todo resultase alegre, elegante, a la moda. Este esfuerzo hecho
-en un medio ambiente tan atrasado, tan añejo, me conmovía; y me con­
-movía sobre todo al comprobar lo poco que habían logrado realizar en mí
-el efecto deseado. Aquellos cuadros altos, simétricos, el bordado de colo­
-rines del tocador, el viso tan encendido, la cortina de la cama, la disposi­
-ción de los muebles, todo, absolutamente todo, estaba contra mi gusto y
-mi manera de sentir. Me daban ganas de desbaratar el trabajo enteramente,
-de hacerlo otra vez a mi gusto, y pensando en lo que esta especie de van­
-dalismo hubiese herido a la pobre tía Clara la consideré un instante profun­
-damente, con lástima, con cariño intenso.
- Durante la explicación de Abuelita, ella, no había dicho ni una sola pa­
- labra. En pie junto a la puerta, guardando silencio, tenía la callada y Hu­
-milde desolación de las vidas que se deslizan monótonas, sin porvenir, sin
-objeto. Y sin embargo, bajo su pelo canoso, con su fisonomía alargada y
-marchita de cutis muy pálido, era bonita tía Clara y a pesar del vestido de
-raso negro recién hecho y pasado de moda, era también distinguida, con
-esa distinción algo ridicula que tienen a veces en los álbumes los retratos
-ya viejos.
- Y mirándola así con agradecimiento y con ternura, en un segundo ra­
-pidísimo recordé cómo allá, en los tiempos de mi infancia, cuando yo venía
-a quedarme aquí con Abuelita, ella, tía Clara, se sentaba por las tardes
-en el sofá del salón y hablaba horas enteras con un señor que me daba cara­
-melos y me hacía muñecos y gallitos con pedazos de papel. Yo solía jugar
-con aquellos gallitos sentada silenciosamente en el suelo, sobre la alfom­
-bra, mientras ellos dos, en el sofá, continuaban su charla que yo encontra­
-ba misteriosa en vista de lo prolongada y lo monótona. Ahora por primera
-vez, después de tantos años, mirándola en pie junto a la puerta, recordé
-la diaria y olvidada escena, y recordándola pensé: «Si aquel señor, como no
-cabe duda, era el novio de tía Clara: ¿qué había sido de é l? . . . ¿por qué no
-se casaron?. . . ». Y para demostrarle mi interés y la fidelidad con que ha­
-bía conservado su imagen a través del tiempo, estuve a punto de descri­
-birle la escena tal como la recordaba y de hacerle después la pregunta.
-Afortunadamente ya con la palabra en la boca me detuve aún a tiempo.
-Comprendí que podía haber en ello algún secreto dolor; que quizás el do­
-lor se anidaría aún en las románticas ruinas de la cabeza gris y que iba
-sin duda a lastimarlo con la indiscreción de tal pregunta. Entonces, para
-expresarle mi cariño en otra forma, cambié bruscamente de tema y dije son­
-riendo que todo, todo en el cuarto estaba precioso y que recibía con amor
-y con muchísima alegría aquellas cosas que por tanto tiempo la habían
-acompañado a ella.
- Pero esto no era cierto. Cristina: ¡no!. . . Mientras tal decía mirando
-primero la cabeza gris junto a la puerta, y mirando luego la blanca cortina
-de punto sobre la cama, tenía el alma oprimida de angustia, de frío, de
-miedo; ¡yo no sé de qué! y es que lúcidamente, en la faz de los muebles
-sentía agitarse ya el espíritu de aquella herencia que me legaba tía Clara. . .
-¡Ah! ¡C ristina!... ¡la herencia de tía C lara!... ¡Era un tropel innume­
-rable de noches negras, largas, iguales que pasaban lentamente cogidas de
-la mano bajo la niebla de punto de la cortina blanca!. . .
- Y por primera vez, en aquel instante profètico, sintiendo todavía en mi
-brazo la suave presión del brazo de Abuelita, vi nítidamente en toda su
-fealdad, la garra abierta de este monstruo que se complace ahora en ce­
-rrarme con llave todas las puertas de mi porvenir, este monstruo que ha
-ido cegando uno después de otro los ojos azules de mis anhelos; este mons­
-truo feísimo que se sienta de noche en mi cama y me agarra la cabeza con
-sus manos de hielo; éste que durante el día camina incesantemente tras
- de mí, pisándome los talones; éste que se extiende como un humo espe­
-sísimo cuando por la ventana busco hacia lo alto la verde alegría de los
-naranjos del patio; éste que me ha obligado a coger la pluma y a abrirme el
-alma con la pluma, y a exprimir de su fondo con substancia de palabras
-que te envío, muchas cosas que de mí, yo misma ignoraba; éste que ins­
-talado de fijo aquí en la casa es como un hijo de Abuelita y como un her­
-mano mayor de tía Clara; sí; éste: ¡el Fastidio, Cristina!. . . ¡el cruel, el
-perseverante, el malvado, el asesino Fastidio!. . .
+—¡Mi hija, mi hija, mi hijita!
+
+Y no quiero detallarte, Cristina, cómo, ni cuántos, fueron los abrazos y los besos que entre lágrimas me dio Abuelita, y me dio luego tía Clara, porque el detallarlos resultaría largo, monótono y repetido. Sólo te diré que hubo llanto, evocaciones, detallar minucioso de mi fisonomía, de mi cuerpo, de mis movimientos; nuevos besos, nuevas lágrimas, y el dulce nombre de Mamá siempre repetido que me cubría como un velo y me transformaba en ella ante el cariño torrencial, efusivo, indescriptible de Abuelita y de tía Clara. Yo me sentía también sorprendida, emocionadísima, y para cortar la escena, conteniendo las lágrimas, con los ojos turbios comencé a inspeccionarlo todo, arriba, abajo, y al ir reconociendo poco a poco las viejas cosas familiares me di a preguntar risueña por los predilectos de mi infancia:
+
+—¿Y los canarios, Abuelita?... ¿Y la gata negra... aquella..., aquella del lazo colorado?... ¿Y los pescaditos de la pila?... ¡Toma!.. pero si ya no hay pila ni hay naranjos en el patio: ¡no me había fijado!
+
+Tía Clara explicó:
+
+—Todo está cambiado. La casa se reformó hace siete años antes de la muerte de Enrique. Mira: se quitó la pila, se puso el mosaico, se pintó al óleo, se decoró de nuevo, se cambió la romanilla del fondo; pero los naranjos –añadió sonriendo– nunca estuvieron aquí sino en el otro patio... ¡y allá están todavía!
+
+Volví la cabeza para mirar la nueva romanilla del fondo, y a su puerta vi agrupadas las cabezas más o menos negras y lanudas de las cuatro fámulas que constituyen el servicio doméstico de Abuelita cuyos ojos me contemplaban ávidos de curiosidad. Yo las abarqué a todas en una rápida ojeada indiferente. Pero como en la rapidez de la ojeada hubiese sentido la atracción de unos ojos, volví a mirar de nuevo y entonces, iluminada ya por el vivo chispazo del recuerdo, lo mismo que había hecho Abuelita un momento antes, yo también ahora, abrí efusivamente los brazos y corrí hacía la romanilla exclamando a voces alegrísima:
+
+—¡Ah!... ¡Gregoria! ¡Gregoria!... ¡Pero si eres tú, viejita linda!...
+
+Y en un abrazo largo y fraternal de almas que se comprenden, Gregoria y yo sellamos de nuevo nuestra interrumpida amistad.
+
+Porque has de saber, Cristina, que Gregoria, la vieja lavandera negra de esta casa, contra el parecer de Abuelita y de tía Clara, es actualmente mi amiga, mi confidente y mi mentor, pues aun cuando no sepa leer ni escribir la considero sin disputa ninguna una de las personas más inteligentes y más sabias que he conocido en mi vida. Nodriza de Mamá, se ha quedado desde entonces en la casa donde desempeña el doble papel de lavandera y cronista, dada su admirable memoria y su arte exquisito para planchar encajes y blanquear manteles. Cuando yo era chiquita y me venía a pasar el día aquí en la casa de Abuelita, era Gregoria quien me daba siempre de comer, quien me contaba cuentos y quien a escondidas de todos me dejaba andar descalza o jugar con agua, atendiendo de este modo al bienestar de mi cuerpo y de mi espíritu. Y es que su alma de poeta que desdeña los prejuicios humanos con la elegante displicencia de los Filósofos Cínicos, tiene para todas las criaturas la dulce piedad fraternal de San Francisco de Asís. Este libre consorcio le ha hecho el alma generosa, indulgente, e inmoral. Su desdén por las convenciones la preservó siempre de toda ciencia que no enseñara la misma naturaleza. Por esta razón, además de no saber leer ni escribir, Gregoria tampoco sabe su edad, que es un enigma para mí, para ella y para todo el que la ve. Blanqueando manteles y planchando camisas, mira correr el tiempo con la serena indiferencia con que se mira correr una fuente, porque ante sus ojos franciscanos, las horas, como las gotas de la hermana agua, forman juntas un gran caudal fresco y limpio por donde viene nadando la hermana muerte. Como te he dicho ya, cuando yo era chiquita, me cuidó siempre con la ternura poética con que se cuidan las flores y los animales. Por eso, aquella tarde, al reconocerla asomada a la puerta de la romanilla, corrí hacia ella movida por el mismo impulso que hace temblar de alegría y de felicidad la cola agradecida de los perros.
+
+Al sentirme entre sus brazos, Gregoria, cuyos sentimientos brotan siempre al exterior ensartados en los matices sonoros o delicadísimos de unas carcajadas especiales, sorprendida y feliz, salpicó un largo rato su risa intensa de emoción con estas pocas palabras:
+
+—¡Dios la guarde!... ¡Dios la guarde!... ¡Haberse acordado de su negra!... ¡de su negra fea!... ¡de su negra vieja!...
+
+Y tanto nos abrazamos, y tanto se rió Gregoria y tanto se prolongó la escena, que Abuelita tuvo que intervenir al fin:
+
+—Bueno, Gregoria, ya basta, ya basta: ¡hasta cuándo! ¡Que empiezas con la risa, y no acabas de reírte nunca!
+
+Y luego, cariñosa, Abuelita añadió dirigiéndose a mí:
+
+—Ven tú, hijita, ven a quitarte el sombrero y a que te refresques un poco. Ven, vamos a que veas tu cuarto.
+
+Apoyada ella en mi brazo y seguidas de todo el mundo atravesamos un pedazo de patio, cruzamos el comedor, y llegamos al segundo patio, aquí, al patio de los naranjos, donde se abre la puerta y la ventana de este cuarto silencioso y cerrado con llave desde el cual te escribo ahora.
+
+En el umbral de la puerta nos detuvimos a mirarle.
+
+A primera vista me pareció sonriente con sus muebles claros y su camita blanca. En aquella hora gris del crepúsculo llegaba a él, más intensamente que nunca, cierto encanto melancólico que parece desprenderse siempre de estos gajos verdes donde amarillean a veces las naranjas, y flotaba también en el ambiente ese olor a engrudo y a pintura fresca que tienen las habitaciones recién empapeladas. Inmóvil sobre el umbral, Abuelita, apoyada en mi brazo, empezó a explicar:
+
+—Este cuarto era el de Clara. Lo amueblé para ella tal como está ahora hace ya muchos años..., cuando se casó María, tu Mamá. Antes dormían las dos juntas en una habitación más grande que está cerca de la mía. Clara ha querido ahora cedértelo todo. Como los muebles son blancos y alegres, es más natural que sean para ti...
+
+—Mira, –interrumpió de golpe mi prima– es un milagro que tía Clara haya convenido en darte su cuarto y sus muebles. Con nosotros, antes, cuando veníamos aquí ¡era una exageración! No nos dejaba ni pasar siquiera porque decía que echábamos a perder los muebles y que de tanto entrar y salir se llenaba de moscas la habitación.
+
+Tía Clara no contestó nada y Abuelita continuó:
+
+—Sí; Clara te ha dejado su cuarto y se viene ahora cerca de mí al cuarto que era de su padre, de tu abuelo. Allí están todavía sus muebles, unos muebles de caoba muy cómodos y más serios que estos otros... Por supuesto que todo se pintó y se empapeló de nuevo para tu llegada. Mira, te pusimos a los dos lados de la cama los retratos de tu Papá y de tu Mamá para que te acompañen siempre. Este tocador era también de Clara; ella misma lo vistió de nuevo. ¡No sabes lo que ha trabajado para terminar el bordado antes de tu llegada! Anoche a las doce: ¡estaba cosiendo todavía!...
+
+El tocador; los retratos; el flamante papel de las paredes; los muebles blancos; tía Clara; la observación de mi prima; todo me había ido produciendo una emoción suave. Había en el arreglo del cuarto profusión de detalles que demostraban una disposición minuciosa, un afán muy mercado de que todo resultase alegre, elegante, a la moda. Este esfuerzo hecho en un medio ambiente tan atrasado, tan añejo, me conmovía; y me conmovía sobre todo al comprobar lo poco que habían logrado realizar en mí el efecto deseado. Aquellos cuadros altos, simétricos, el bordado de colorines del tocador, el viso tan encendido, la cortina de la cama, la disposición de los muebles, todo, absolutamente todo, estaba contra mi gusto y mi manera de sentir. Me daban ganas de desbaratar el trabajo enteramente, de hacerlo otra vez a mi gusto, y pensando en lo que esta especie de vandalismo hubiese herido a la pobre tía Clara la consideré un instante profundamente, con lástima, con cariño intenso.
+
+Durante la explicación de Abuelita, ella, no había dicho ni una sola palabra. En pie junto a la puerta, guardando silencio, tenía la callada y humilde desolación de las vidas que se deslizan monótonas, sin porvenir, sin objeto. Y sin embargo, bajo su pelo canoso, con su fisonomía alargada y marchita de cutis muy pálido, era bonita tía Clara y a pesar del vestido de raso negro recién hecho y pasado de moda, era también distinguida, con esa distinción algo ridícula que tienen a veces en los álbumes los retratos ya viejos.
+
+Y mirándola así con agradecimiento y con ternura, en un segundo rapidísimo recordé cómo allá, en los tiempos de mi infancia, cuando yo venía a quedarme aquí con Abuelita, ella, tía Clara, se sentaba por las tardes en el sofá del salón y hablaba horas enteras con un señor que me daba caramelos y me hacia muñecos y gallitos con pedazos de papel. Yo solía jugar con aquellos gallitos sentada silenciosamente en el suelo, sobre la alfombra, mientras ellos dos, en el sofá, continuaban su charla que yo encontraba misteriosa en vista de lo prolongada y lo monótona. Ahora por primera vez, después de tantos años, mirándola en pie junto a la puerta, recordé la diaria y olvidada escena, y recordándola pensé: «Si aquel señor, como no cabe duda, era el novio de tía Clara: ¿qué había sido de él?... ¿por qué no se casaron?...». Y para demostrarle mi interés y la fidelidad con que había conservado su imagen a través del tiempo, estuve a punto de describirle la escena tal como la recordaba y de hacerle después la pregunta. Afortunadamente ya con la palabra en la boca me detuve aún a tiempo. Comprendí que podía haber en ello algún secreto dolor; que quizás el dolor se anidaría aún en las románticas ruinas de la cabeza gris y que iba sin duda a lastimarlo con la indiscreción de tal pregunta. Entonces, para expresarle mi cariño en otra forma, cambié bruscamente de tema y dije sonriendo que todo, todo en el cuarto estaba precioso y que recibía con amor y con muchísima alegría aquellas cosas que por tanto tiempo la habían acompañado a ella.
+
+Pero esto no era cierto. Cristina: ¡no!... Mientras tal decía mirando primero la cabeza gris junto a la puerta, y mirando luego la blanca cortina de punto sobre la cama, tenía el alma oprimida de angustia, de frío, de miedo; ¡yo no sé de qué! y es que lúcidamente, en la faz de los muebles sentía agitarse ya el espíritu de aquella herencia que me legaba tía Clara... ¡Ah! ¡Cristina!... ¡la herencia de tía Clara!... ¡Era un tropel innumerable de noches negras, largas, iguales que pasaban lentamente cogidas de la mano bajo la niebla de punto de la cortina blanca!...
+
+Y por primera vez, en aquel instante profético, sintiendo todavía en mi brazo la suave presión del brazo de Abuelita, vi nítidamente en toda su fealdad, la garra abierta de este monstruo que se complace ahora en cerrarme con llave todas las puertas de mi porvenir, este monstruo que ha ido cegando uno después de otro los ojos azules de mis anhelos; este monstruo feísimo que se sienta de noche en mi cama y me agarra la cabeza con sus manos de hielo; éste que durante el día camina incesantemente tras de mí, pisándome los talones; éste que se extiende como un humo espesísimo cuando por la ventana busco hacia lo alto la verde alegría de los naranjos del patio; éste que me ha obligado a coger la pluma y a abrirme el alma con la pluma, y a exprimir de su fondo con substancia de palabras que te envío, muchas cosas que de mí, yo misma ignoraba; éste que instalado de fijo aquí en la casa es como un hijo de Abuelita y como un hermano mayor de tía Clara; sí; éste: ¡el Fastidio, Cristina!... ¡el cruel, el perseverante, el malvado, el asesino Fastidio!...
+
+Pero este fastidio cruel que presentí por vez primera la tarde de mi llegada, este fastidio que me ha hecho analista expansiva y escritora, tiene una raíz muy honda, y la honda raíz tiene su origen en la siguiente reveladora escena que voy a referirte y que ocurrió una mañana, a los dos o tres días de mi llegada a Caracas.
+
+Sería cosa de las once y media. Abuelita, tío Pancho, tía Clara y yo, nos hallábamos instalados hacia el fondo del corredor de entrada, allí mismo, en aquel bosquecillo verde que te he descrito ya; en donde se esparcen varios sillones de mimbre alrededor de una mesa; en donde vi blanquear el día de mi llegada la cabeza de Abuelita y en donde ella se instala diariamente con su calado, sus tijeras y su cesta de costura. Aquella mañana habíamos entrado por fin en plena normalidad. O sea que yo, luego de pasar dos días en una especie de exhibición ante las relaciones góticas de Abuelita, es decir, ante un reducido número de personas de ambos sexos más o menos uniformadas en cuanto a ideas, vestimenta y edad, las cuales acudieron a conocerme y a felicitar a Abuelita por mi feliz llegada, y las cuales, durante unas visitas muy largas, me hicieron todas con ligerísimas variantes los mismos cumplidos y las mismas preguntas, aquella mañana, digo, terminado ya el desfile, yo había podido al fin entregarme a mi libre albedrío y a mis personales ocupaciones. La mañana, dedicada por entero al arreglo de mi cuarto, había sido muy bien aprovechada. Al dar las once me hallaba cansada y satisfecha, porque hermanando el espíritu de conquista al espíritu de conciliación, había logrado imponer mi gusto moderno y algo atrevido, sobre el gusto rutinario, simétrico y cobardísimo de tía Clara. Sin herir susceptibilidades la obra primitiva se encontraba ya reformada, y bajo la presidencia de dos muñecas parisienses, rubias, petulantísimas, y vestidas de seda que esponjaban como pantalla sus dos crinolinas, rosa la una y verde la otra, sobre mi mesa de noche y sobre mi escritorio, el cuarto se veía ahora bastante contemporáneo y bastante bien. Poco después de las once, vinieron a avisarme que tío Pancho había entrado a saludarnos como suele hacer cuando vuelve a esa hora del Ministerio de Relaciones Exteriores donde desempeña un empleo. Al tener noticias de su llegada, dejé al punto de contemplar mi obra, y fue entonces cuando entre helechos y palmas, hacia el fondo del corredor de entrada, me instalé en tertulia con él, con Abuelita y con tía Clara.
+
+Como era sábado, día de repasar, tía Clara se hallaba ante una cesta llena de medias y de ropa, zurciendo una servilleta de hilo ya muy vieja y usada; Abuelita, inclinándose mucho sobre las rodillas calaba uno de esos pañuelos de seda que doblados luego en cuatro, atados con un lacito, y puestos en una caja de cartón, distribuye el día de su santo a los nietos; tío Pancho, sentado en una mecedora, fumándose un tabaco refería una historia muy interesante que hacía detener de pronto el calado de Abuelita o el zurcido de tía Clara y que a mí no me interesó nada porque trataba de personas que me eran completamente desconocidas. Mirando las matas del patio descansaba con fruición de la doble fatiga moral y material ocasionada por el arreglo de mi cuarto, reflexionando al mismo tiempo cuál sería la manera más eficaz de desviar el curso de aquella conversación que me aburría. De pronto dije atropellando resueltamente la interesante historia:
+
+
+—¡Oye, tío Pancho, quiero comunicarte un proyecto; ¡vamos a ir de paseo a Los Mecedores, los dos; hoy, mañana, pasado, cuando a ti te parezca! Me siento romántica. Tengo unos deseos inmensos de presenciar un crepúsculo acostada sobre la hierba, en pleno aire, mirando desde abajo la copa de los árboles y, detrás de los árboles, el cielo; ¡deseo muchísimo ver otra vez Los Mecedores! Recuerdo que cuando chiquita me llevaban allá a hacer ejercicio y me gustaba mucho. Tomábamos el tranvía y llegábamos cerca de una iglesia que se llamaba... ¿cómo era?...
+ 
+—La Pastora.
+
+—Eso es. ¡Pues vamos a ir un día a Los Mecedores, los dos!... ¡Ah! y a propósito, Abuelita, ¿cuándo vamos a la hacienda de Papá, a San Nicolás?... ¿Es tío Eduardo quien la administra siempre, verdad?...
+
+Aquella pregunta que había sido hecha con entera naturalidad y alegría, se quedó durante un rato como suspendida en el espacio, y hubo un silencio, Cristina, un silencio intenso y trágico durante el cual Abuelita y tía Clara sin levantar la cabeza de la costura, levantaron la vista y se miraron un instante por encima de los ojos redondos de sus respectivos lentes. Luego, volvieron a la costura, y fue entonces cuando Abuelita, cosiendo y sin mirarme se decidió a hablar en un tono muy dulce y conmovido:
+
+—San Nicolás es de Eduardo, mi hija.
+
+Y esto lo dijo con la misma compasión con que se le habla a los niños muy pobres cuando quieren comprar en las tiendas un juguete de lujo. Después de la frase compasiva y breve, hubo otro silencio mucho más largo, más intenso y más trágico que el anterior. Era el silencio horrible de la revelación. Envuelta en la voz de Abuelita, la verdad se había presentado a mi espíritu tan clara y terminante que no pedí ninguna explicación, ni hice ningún comentario. Comprendí que debía ser irremediable y decidí aceptarla desde el principio con valentía y con altivez. Sin embargo, Cristina, las consecuencias que surgían en tropel de aquella revelación eran demasiado enormes para que yo me las viese al momento y para que su vista no desencadenase en mi alma una horrible tempestad interior. ¡San Nicolás era de tío Eduardo! No sabía cómo, ni por qué, pero ¡era de tío Eduardo! por lo tanto, yo, que me creía rica, yo, que había aprendido a gastar con la misma naturalidad con que se respira o se anda, no tenía nada en el mundo, nada, fuera de la protección severa de Abuelita, que se inclinaba ahora sacando la aguja por entre las hebras del pañuelo de seda, y fuera del cariño jovial de tío Pancho, que también callaba enigmático recostado en la mecedora, apretando entre los dientes el tabaco encendido y oloroso... Con mis ojos espantados les miré a los dos y seguí luego contemplando interiormente la horrible noticia que se abría de golpe ante mi porvenir, como una ventana sobre una noche lúgubre: ¡la pobreza!... ¿Comprendes bien, Cristina, todo lo que esto significaba?... Era la dependencia completa con todo su cortejo de humillaciones y dolores. Era el adiós definitivo a los viajes, al bienestar, al éxito, al lujo, a la elegancia, a todos los encantos de aquella vida que había entrevisto apenas durante mi última permanencia en París, y a la que aspiraba yo con vehemente locura. Era también el adiós definitivo para ti y para tantas otras cosas y personas que no había conocido nunca y que presentía esperándome gloriosas por el mundo... ¡el mundo!... ¿sabes?... ¡todo el caudal de felicidad y de alegría que se agita más allá de las cuatro paredes de hierro de esta casa de Abuelita!... ¡Ay! la alegría, la libertad, el éxito ¡ya no serían míos!... y ante semejante idea, sentí que un nudo me apretaba espantosamente la garganta y que un torrente de lágrimas me asediaba impetuoso y terrible...
+
+Para poder disimular y contener las lágrimas empecé por bajar los ojos y clavarlos en el suelo. Allí, me di a contemplar fijos sobre el mosaico los zapatos de Abuelita, tía Clara y tío Pancho. No sé por qué me pareció que aquellos zapatos tenían una fisonomía especial y que con ella me estaban mirando. Es muy curioso el observar, Cristina, cómo en los momentos de crisis aguda los objetos que nos rodean se animan de vida. Hay veces que parecen hacerse cómplices del mal que nos tortura; otras, por el contrario, nos miran con una intención cariñosa y triste como si quisieran consolarnos. En aquel instante me pareció que aquellos seis zapatos en sus diversos aspectos o actitudes, tenían todos la expresión uniforme que tienen los públicos. Y era una expresión no sé si de burla o de lástima. Ambas cosas me desagradaban igualmente; pero como quería triunfar de mi emoción me dije que se burlaban de mí. Juzgué mi situación ridícula. Recordé la mirada de inteligencia que habían cambiado Abuelita y tía Clara por encima de sus lentes. Pensé que si tenía una crisis de llanto, ellas la referirían sin duda a tío Eduardo, me imaginé a tío Eduardo comentándola a su vez con su mujer y sus hijos; y enardecido terriblemente mi orgullo ante esta última imagen, acabé por triunfar de mi gran emoción. Entonces, para asumir al punto una actitud cualquiera, alcé la cabeza, miré a los circunstantes, respiré con violencia, exclamé:
+
+—¡Ay! ¡Qué calor!
+
+Y levantándome del asiento que ocupaba, me senté de un salto con mucha agilidad sobre una mesita o columna dedicada a sostener una de las grandes macetas de palma que en aquel instante tomaba el aire y el sol en el patio; una vez allí, me puse la mano izquierda en la cintura y me di a balancear el pie derecho con un movimiento acompasado de péndulo, cuyo extremo llegaba hasta hacer chocar la punta de mi zapato contra el borde de aquella mesa de mimbre alrededor de la cual se hallaban Abuelita, tía Clara y tío Pancho. Sentía que semejante actitud debía darme un aspecto de absoluta despreocupación y balanceaba el pie con estoicismo, con orgullo y con convicción.
+
+Pero todo esto que detallado aquí parece larguísimo había ocurrido apenas en el breve espacio de un minuto. Bajo el rítmico balanceo de mi pie los tres circunstantes continuaban aún en completo silencio e inmovilidad. Sólo Abuelita, optó de repente por levantar los ojos del calado, me observó unos segundos y como mi actitud pareciese convencerla del todo, volvió a bajar la vista y siguió calando con mucha tranquilidad el pañuelo de seda. Se imaginó cándidamente que la noticia anunciada por ella como una bomba, me tenía sin cuidado. Eso era lo que yo quería y por lo tanto me sentí satisfecha. Pero te aseguro, Cristina, que desde aquel momento, Abuelita comenzó a desprestigiarse muchísimo ante mis ojos. Comprendí que tenía muy poca penetración y que carecía en absoluto de sutileza psicológica. En el fondo me alegro de que así sea. Es muy incómodo vivir con personas dotadas de penetración y de sutileza psicológica. Se pierde en absoluto la independencia y no es posible engañarlas jamás porque todo lo ven. Sin embargo, Abuelita tiene entre sus relaciones fama de gran inteligencia ¡Ah! pero desde ese día cuando me dicen a mí: «el talento de tu Abuela» yo exclamo inmediatamente en mi fuero interno «¡No es verdad, no tiene ninguno!».
+
+Como te decía, Abuelita, luego de observarme sin hacer comentario, volvió a su costura, enhebró la aguja que se le había desenhebrado, dio unas cuantas puntadas, levantó otra vez la cabeza, volvió a observarme y entonces dijo:
+
+—María Eugenia, hija mía, oye: eres distinguida, bien educada, tienes bastante instrucción, sabes presentarte correctamente, y sin embargo algunas veces tomas esos modales de muchacho de la calle. Mira: en lugar de sentarte en una silla cómo los demás, estás sentada ahí arriba, al nivel de mi cabeza en esa columna que se puede venir abajo con tu peso. Se te ven las piernas hasta las rodillas, tienes una mano en la cintura lo mismo que las sirvientas, y estás balanceando el pie con un movimiento vulgarísimo... Además, fíjate, mira, al darle así a la mesa con la punta del zapato echas a perder a un tiempo las dos cosas: la mesa y la punta de tu zapato nuevo...
+
+Terminada esta exhortación dejé de balancear el pie y me quité la mano de la cintura, pero como sentía una necesidad violenta de destruir algo, sin bajarme de la columna, cosa que hubiera sido demasiada obediencia, empecé a surcar con la uña una hoja de palma que para desgracia suya se encontraba a mi alcance. Abuelita entretanto había vuelto a sumirse en el calado y callaba de nuevo. Su pensamiento debió caminar ahora por el terreno de los asuntos económicos, porque al cabo de un rato dijo con entera naturalidad:
+
+—Se me olvida siempre preguntarte, María Eugenia: ¿trajiste los diez mil bolívares que te giró Eduardo a París por medio de Antonio Ramírez?... Con el cambio me parece que alcanzaban a unos cincuenta mil francos...
+
+—Sí; en efecto, cincuenta mil francos, de los cuales, Abuelita, la última moneda de oro la cambié en La Habana. Por cierto que si no va tío Eduardo a buscarme a bordo, te advierto que de mi propio pecunio no hubiera podido pagar quien me cargase una maleta –y balanceando otra vez el pie, pero con impulso tan fuerte que estuve a pique de irme para atrás con columna y todo añadí–: ¡No me quedó ni un céntimo, ni medio céntimo, ni un cuarto de céntimo! ¡Nada! ¡nada! ¡nada!
+
+Abuelita soltó el pañuelo, el dedal, la aguja, y se quitó los lentes espantada:
+
+—¿Gastaste todos los diez mil bolívares?... ¿los tiraste a la calle?... ¡Ave María! ¡qué locura!... Si se lo dije a Eduardo: «No mandes ese dinero sin advertir antes a Ramírez» pero se empeñó en girarlo por cable y ¡aquí está el resultado!... ¡De modo que gastaste los diez mil bolívares!... Pero dos mil fuertes colocados al nueve te hubieran producido unos quince fuertes mensuales, mi hija: tal vez se hubieran podido colocar al diez, hasta al doce y hubieran sido entonces ochenta o cien bolívares al mes... piensa... hubieras tenido algo, muy poco, una miseria, pero en fin algo, ¡algo para gastos de bolsillo siquiera!... Ese dinero se mandó a París, sólo por previsión, en caso de un accidente, de una enfermedad. Un mes antes se había girado al consulado una letra para tu viaje, para pagar cualquier gasto extraordinario que hubiera ocasionado la muerte de tu padre y para tu luto. ¡Era más que suficiente!
+
+¡Ah! el celo extremado de Abuelita hacia aquellos dos mil fuertes, último jirón de mi patrimonio, me crispaba horriblemente los nervios, ahora que ante mis ojos acababan de esfumarse los muchos miles que representaba San Nicolás. Mientras ella hablaba exaltadísima, yo, que me encontraba ahora sobre la columna, inmóvil y heroica como el Estilita, tuve de pronto el firme presentimiento de que tío Eduardo había rendido con mi herencia las cuentas del Gran Capitán, y sentí una rabia espantosa. Esta rabia alcanzó su período álgido cuando Abuelita dijo: «hubieras tenido muy poco, una miseria, pero en fin, algo, algo...» y como me imaginase al punto la cabeza antipática de tío Eduardo, me apresuré a insultarla con toda mi alma, dirigiéndole en pensamiento y de carretilla los siguientes apóstrofes: «Viejo avaro, ladrón, canalla, cursi, gangoso, escoba vestida de hombre» e injustamente, hice a Abuelita cómplice de mi desgracia. Entonces, con el objeto de molestarla de cualquier manera, cuando terminó de hablar, fingiendo buen humor, exclamé alegrísima:
+
+—¡Ay! Abuelita, Abuelita ¡Y cómo se conoce que no has estado nunca en París! Yo me hice mis vestidos de luto en Biarritz; ¡claro! pero lo que pasa siempre: te haces un vestido nuevo, llegas a París y parece viejo... Mira, en París, Abuelita, no me puse ni una vez los vestidos de Biarritz, ni los estrené, ni me molesté en guardarlos siquiera, porque su vista, sí, el verlos nada más de lejos, colgados en el armario me repugnaba: olían a colegio, a ingenuidad, a burguesía, ¡qué horror! ¡Ah! fue en París, Abuelita, donde yo aprendí a vestirme, donde sentí de lleno esta revelación del *chic*!... Los vestidos de Biarritz que eran más o menos... ¡pss!... diez o doce, se los regalé todos a la camarera del hotel... como eran negros, a la camarera le quedaban bastante bien, con la cofia de batista y esos delantalitos de...
+
+Abuelita me interrumpió desesperada, y con los lentes trémulos, enarbolados en la mano derecha, exclamó varias veces, en ese tono trágico en que se lamentan las catástrofes irremediables:
+
+—¡Qué locura, Señor, qué disparate, cincuenta mil francos en trapos cuando ya estaba equipada para el viaje!
+
+—¿Pero no viste ayer mis vestidos, mis sombreros, mis medias, y mis combinaciones de seda, o crees acaso, Abuelita, que eso se regala en París?... ¡Si demasiado barato lo compré todo! aquello representa lo muy menos... lo muy menos: ¡ochenta mil francos!... A ver, tú, tú, tío Pancho, que según dices has pagado muchos sombreros en París, di: ¿están caros mis sombreros? ¿están caros?...
+
+Y esta última pregunta la hice con tantísima vehemencia que estuve de nuevo a punto de caerme de la columna, pero esta vez de narices y en dirección a tío Pancho. Él me consideró un instante y respondió evasivo envolviendo la respuesta en una bocanada de humo:
+
+—Acuérdate que todavía no me has enseñado tus sombreros, María Eugenia.
+
+—Bueno: pues mira; lo más elegante, lo más bonito, lo más *dernier cri*, que has visto en tu vida. ¡Figúrate que llamaban la atención en París!... y como yo tenía con ellos tanta personalidad, tanta *allure*, pues no me llamaban sino «*Madame*»... sí;... «*Madame* Alonso».
+
+—¡Ay! María Eugenia –dijo Abuelita asustada desmayando sobre la falda la mano de los lentes– ¡quién sabe hija mía, quién sabe por lo que te tomaban! ¡Y para hacer ese papel tan triste botaste tu dinero! 
+
+—¿Cómo, para hacer ese papel tan triste? Mira, Abuelita, cuando se tiene dinero en París, y ese dinero se bota, como tú dices, pasas a ser más que un rey y más que un emperador. Te parece que todo es tuyo. La plaza de la Concordia, por ejemplo, es como si fuera... ¡pss! el patio de tu casa, los Campos Elíseos el zaguán de entrada, el Bosque de Bolonia tu corral, total, que acabas por convencerte de que vives en una especie de hacienda tuya en donde todo el que pasa está a tus órdenes para lo que quieras mandar. La prueba de lo que te estoy diciendo es esto que me ocurrió una de esas mañanas de sol en que uno se siente muy alegre: iba yo subiendo hacia la Estrella cuando mi taxi se quedó estacionado en plenos Campos Elíseos porque estaban arreglando la calzada y la circulación se hacía difícil. De pronto, gran sensación, pasaba el Presidente de la República con comitiva de ministros llenos de coronas y discursos que se iban a celebrar una de sus eternas ceremonias ante la tumba del soldado desconocido. Bueno ¿tú crees que me impusieron ellos a mí, o que me dieron ni por un segundo la sensación de mando? ¡Todo lo contrario! Como ésos del gobierno tienen por lo general un aire tan desgraciado y llevan tan mal la ropa ¿sabes lo que les grité en pensamiento desde mi taxi parado? Pues saqué la cabeza y les dije así con mucho cariño: ¡Adiós el mayordomo y el peonaje! Y a ver por Dios cuándo me acaban de arreglar el piso que es una vergüenza lo que dura ya esto, aquí me quedo todos los días como están viendo, y llego en retardo para mis pruebas que son por lo general cosas de muchísimo apuro. Y a ver también si aprenden a tener un poco más de gracia, y que se afeiten tanto bigote que eso ya no se usa, y que se adelgacen, y que crezcan. ¡*Abur*! ¡Recuerdos al Desconocido!...
+
+—María Eugenia –interrumpió Abuelita–, mi Madre decía siempre que Dios nos toma en cuenta las tonterías y las palabras inútiles. Según eso, mi hija, tú, vas a tener mucha cuenta que entregarle a Dios.
+
+Yo volví a la anterior conversación y seguí enumerando mis gastos:
+
+—Bueno, además de los sombreros, el calzado todo a medida; añade los *déshabillés*; añade la *liseuse* de encaje, añade el kimono negro... ¡ah!, y sobre todo: ¡los regalos!... se me olvidaba, los regalos me costaron carísimos... Fíjate, Abuelita, fíjate en la etiqueta de las cajas, todas cosas finas de la rue de la Paix... ¡Ah!, ¡es que yo no regalo pacotilla!
+
+—¡Ah! no, no regalas pacotilla –volvió a decir Abuelita sulfurada, enarbolando otra vez los lentes–. ¡Si me parece que estoy oyendo a tu Padre! ¡Qué caracteres de despilfarro! ¿Pero tú te imaginas, hija mía, que puede causarme algún placer ese saco de mano que me trajiste, ahora que sé de dónde salió y lo que te costaría?
+
+—¡Pero yo tuve gusto en regalártelo y eso me basta!... ¡Ah! ¡si supieras lo que yo aproveché mi dinero! ¡si supieras lo que me encanta probarme vestidos y más vestidos... Mira, me iba a casa de Lelong quien, te advierto entre paréntesis, siendo de lo más chic, tiene precios bastante moderados, pues yo soy económica aunque tú no lo creas. Bueno, me iba a casa de Lelong: ¡y a probarme!... que éste sí; que éste también; que aquél me queda que es una maravilla; que este otro me queda todavía mejor; y la vendedora que decía admirada: «¡Con ese vestido parece una reina!... pero le advierto que es el más caro de todos...» y yo, que respondía con este ademán así de millonaria elegante: «¡El precio es lo de menos!», y a ver más modelos, y a tiendas, y a correr bulevares, arriba, abajo, sola, sola, solita, de mi propia cuenta!... ¿Crees, crees, Abuelita, que cambio esos días de libertad por tener veinte miserables fuertes mensuales?... ¡Ah! ¡no, no y no!...
+
+—Sí; ya sabía por Eduardo, a quien se lo contaron en La Guaira, que andabas sola por las calles de París, y eso me contrarió muchísimo. No comprendo cómo Ramírez, un hombre sensato, pudo autorizar jamás semejante locura. ¡Una niña de dieciocho años, sola de su cuenta, en una capital como ésa! ¡Qué disparate! ¡Qué peligro!... ¡Cuando lo pienso!... y no te figures que aquí en Caracas puedes hacer lo mismo...
+
+—¡Ah! ¿de modo que esas eran «las ocupaciones» que tenía tío Eduardo en La Guaira? Andar averiguando lo que yo hice en París para venir a contártelo a ti. Quiere decir que también es espía y chismoso. ¡Con aquella cara de mosca muerta!
+
+—¡Eso no es chisme! Era su deber advertirme, así como también es mi deber aconsejarte que no vuelvas nunca a cometer semejante imprudencia.
+
+Tío Pancho y tía Clara, con ese tacto sutil que tienen las almas muy buenas, sí debieron sentir la tempestad subterránea que se desarrollaba en mi alma, bajo aquella discusión trivial con Abuelita. Respetaban los dos mi dolor con su silencio; ella muy abismada en el pasar de la aguja por la trama del zurcido; él distraído, echado hacia atrás, la cabeza sobre el respaldo de la mecedora, siguiendo con una mirada vaga las figuras alargadas y tenues, que el humo del tabaco iba forjando en el aire. De pronto se levantó; tiró la colilla entre las matas del patio, se quedó un rato pensativo, se vino luego hacia mí, se paró frente a la columna con los pies separados, las dos manos en los bolsillos del pantalón, la chaqueta recogida tras la actitud de los brazos y así, entre irónico y festivo, intervino al fin:
+
+—¿Te divertiste con tus cincuenta mil francos?... ¿Sí?... ¿bastante?... pues entonces estuvieron ¡muy bien gastados!... ¡Ah!, sobrina, no sabes tú la serie de cheques de a cincuenta mil francos, que gasté yo en París, y como a ti: ¡no me pesa! Más vale gastar el dinero en divertirse, que gastarlo en malos negocios de los cuales se aprovecha infaliblemente un tercero. Al menos divirtiéndose con él no se corren riesgos de hacer el papel de imbécil...
+
+Pero Abuelita y tía Clara, con gran vehemencia le cortaron la palabra a tío Panchito, por medio de dos distintas objeciones. Tía Clara dijo:
+
+—¡Pero cómo te figuras, Pancho, que María Eugenia podía divertirse en París, cuando el cadáver de su padre estaba todavía caliente como quien dice!... ¡No la creo tan sin corazón!
+
+Y Abuelita por su lado, dominando la voz de tía Clara se puso a decir exaltadísima:
+
+—¡Eso faltaba, Pancho, eso no más faltaba, que vinieras tú ahora a predicarle a esta niña tus doctrinas corrompidas! ¿Por qué no le aconsejas también que beba, o que se ponga morfina o cocaína ahora que no tiene cómo gastar?
+Tío Pancho, sin modificar su actitud se volvió ligeramente hacia Abuelita y dijo con mucha calma:
+
+—Supongamos, Eugenia, que esta niña, movida por un espíritu de economía y de prudencia llega a Caracas con su cheque de cincuenta mil francos sin cobrar... ¿Qué hubiera sucedido? Usted, en su justo afán de acrecentar la suma, se entusiasma con tal o cual negocio que tiene Eduardo en San Nicolás. En una siembra de algodón, de tabaco, o de papas, un negocio seguro, segurísimo... Eduardo cede generosamente a María Eugenia un tablón de la hacienda; se planta la semilla, pero viene un invierno, un gusano o la langosta; precisamente, es del tablón de María Eugenia del que se encapricha la plaga y: *De profundis clamavi ad te Dómine*... ¡no quedan de él ni cenizas!... ¿no es mil veces mejor que haya entonces empleado su dinero en divertirse?... ¡Ah! en negocios de agricultura, que son los que hasta ahora hemos acostumbrado hacer en la familia, resulta que las calamidades y los malos precios se alían siempre contra el ausente, la mujer o el menor, quienes pierden indefectiblemente... Ocurre... ¡lo natural!... lo que ocurrió en el cuento de aquel almuerzo celebrado entre marido y mujer: ¡la ración del ausente es siempre la que se come el gato!
+
+Aquello era una explicación clarísima de lo que yo quería saber y como resultó ser lo mismo que había sospechado, sonreí placentera y exclamando interiormente:
+
+—¡No lo dije!
+
+Y creo sin duda ninguna, que me habría bajado de la columna para abrazar a tío Pancho por su valiente acusación, si no fuese porque Abuelita, enardecida quizás por mi presencia y mi sonrisa, se había erguido terrible contra el respaldo de su sillón de mimbre, y así, erguida, terrible, lastimada en lo más vivo de su amor de madre, estalló con la arrogancia de una leona:
+
+—¡Eso no puedo tolerarlo, Pancho, que aquí en mi casa, en mi presencia, frente a mí, te atrevas a expresarte de Eduardo en esa forma y muchísimo menos todavía que lo desprestigies delante de esta niña, con quien ha sido él, demasiado lo sabes, tan bueno y tan generoso como un mismo padre!... ¡Por decir cosas que tú supones graciosas no respetas nada, ni lo más santo, ni lo más sagrado! ¡Creo que Eduardo ha dado en su vida suficientes pruebas de ser un hombre íntegro y honrado!... ¡Ha levantado una familia honorable, ha pasado su vida trabajando, nunca se ha arrastrado en política, ni como hacen otros, ha avergonzado jamás a su familia entregándose a la bebida y al juego!...
+
+Y al hablar así, Abuelita estaba imponente y magnífica.
+
+Porque sucede, Cristina, que Abuelita, quien jamás sale a la calle; rodeada como está siempre por el ambiente solariego de esta casa, encastillada en sus ideas de honor; aureolada por sus años y su virtud austera, tiene realmente el prestigio de las grandes señoras que infunden en cuantos las rodean un respeto profundo. Del trato con mi abuelo, su marido, que fue poeta, historiador, ministro y académico, adquirió un ademán distinguido en el decir y la palabra fácil y elegante, circunstancias que le han valido sin duda ninguna su gran fama de inteligencia. En aquel instante, defendiendo a su hijo de las sospechas que las palabras de tío Pancho hubieran podido despertar en mi espíritu, estaba como te digo, soberbiamente altiva. Sus ojos ya apagados de ordinario, brillaban ahora encendidos por el fuego de la santa indignación, y enarcados por las cejas severas, realzados por la majestad de los cabellos blancos, infundían temor.
+
+Y no puedo negarte que durante un instante olvidé mi propio infortunio para admirar a Abuelita: la admiré con sorpresa, con veneración y con orgullo, por la majestad y por la elegancia que tenía para indignarse.
+
+Pero en cambio, tío Pancho, que como te he dicho ya es insensible a la elocuencia y a cualquier otra de estas manifestaciones sublimes en que suelen exteriorizarse la cólera, el entusiasmo, o la desaprobación, permaneció impasible. Cuando Abuelita remató su brillante apología de tío Eduardo con aquella frase alusiva e hiriente: «No ha avergonzado jamás a su familia entregándose a la bebida y al juego...», tío Pancho, este tío Pancho que es inconmovible, sin decir ni una palabra, siguió inmóvil frente a Abuelita, con sus dos manos en los bolsillos, indiferente, apacible, silencioso, contemplando sobre el patio la inmensidad del espacio, como una roca erguida frente a un mar tempestuoso. Estoy cierta que pensaba:
+
+—¿Y para qué contestar?... ¿De qué sirven las palabras?... ¡Si también son paravanes, mentiras, monedas falsas!...
+
+Pero esto no lo dijo sino que debió reflexionarlo mientras callaba, durante la larga pausa que siguió a la indignación de Abuelita, como la calma sigue a la borrasca. Luego, en la misma actitud reflexiva y silenciosa dio unos cuantos pasos por el corredor; pero a poco se detuvo, sacó el reloj del bolsillo de su chaleco, lo miró, exclamó:
+
+—¡Diablo, si ya van a dar las doce!
+
+Y muy tranquilamente, como si nada hubiese ocurrido tomó del colgador su bastón, su sombrero; se puso el sombrero; se asomó un segundo al espejo angosto del colgador; se despidió sonriente:
+
+—¡Hasta mañana!
+
+Sonó la puerta de la calle que se cerró tras él, y los pasos se fueron apagando por el zaguán y la acera.
+
+
+En efecto, a poco de salir tío Pancho, en plenos puntos suspensivos, el reloj de Catedral, un reloj filarmónico, Cristina, un reloj *sochantre*, que asomado a los cuatro costados de la torre se pasa el día cantando las horas, las medias y los cuartos con un canto monótono que se oye de toda la ciudad, y que de noche recuerda el fraternal e igualitario «de morir tenemos» de los cartujos: comenzó a cantar con mucha filosofía y unción:
+
+—Tin, tan; tin tan;...
+
+Bueno, una especie de canción que en notas musicales viene siendo:
+
+ —¡Mi, do, re, sol!... (un cuarto) ¡Sol, re, mi, do! (otro cuarto) ¡Do, si, la, mi… etc., etc.
+ 
+Tía Clara dijo al momento:
+
+—¡Son las doce! 
+
+Y puesta en pie como por resorte se santiguó y entonó el *Angelus* en voz alta.
+
+Yo, en vista de mi malhumor, resolví no contestar en coro con Abuelita, ni a la salutación ni a las avemarías. Tía Clara me dirigió por ello una mirada de desaprobación mientras decía:
+
+—«El verbo se hizo carne»...
+
+Pero yo continué callada, y ella, luego de terminar, volvió a santiguarse y sin decir más nada, recogió la ropa y las medias; las dobló; las metió en la cesta; se fue taconeando; y cuando el rítmico martilleo se perdió ahora también más allá del comedor y del segundo patio, entre Abuelita y yo se interpuso definitivamente un silencio penoso. De un salto me bajé al momento de la columna con el objeto de alejarme a mi vez, pero Abuelita me hizo señas de que viniese a sentarme en la sillita baja de tía Clara que se hallaba a su lado, y entonces, poniéndome una mano en el hombro, y con una voz muy suave, muy cariñosa, muy persuasiva comenzó a decirme dejando por completo de coser:
+
+—Mi hija, ya no eres una niña inconsciente. Ya estás en edad de comprenderlo todo. Tienes una inteligencia muy clara, un corazón muy recto, y es preciso que con ellos juzgues las cosas tales como son, sin guardar nunca para nadie ni odio ni rencor. Las mujeres, hija mía, hemos nacido para el perdón. El tesoro de nuestra indulgencia no debe agotarse nunca, ni aun en medio de las más crueles espinas del sacrificio. ¡Con cuánta mayor razón si ese tesoro se prodiga sobre seres tan queridos como son nuestros padres!... Las palabras imprudentes de Pancho me obligan a hacerte explicaciones que hasta cierto punto hubiera preferido que ignoraras siempre; pero dadas las circunstancias, es para mí un deber moral defender a Eduardo de cargos que injustamente se le imputan... Óyeme bien, hija mía, porque yo que te quiero como no te quiere nadie, te hablo con entera justicia: Si hoy no tienes nada en la hacienda San Nicolás, y ni un céntimo tampoco de la herencia que te dejó tu padre, es única y exclusivamente por culpa de tu padre, que vivió al día, como gran rentista, entregado a la más absoluta indolencia, sin pensar jamás en el mañana ni en la muerte... ¡Ah!, y este mal funesto, que es el mismo de Pancho, es un mal de educación, un mal que proviene de muy atrás, y que por lo tanto no puede reprochársele a ninguno de los dos...
+
+Calló un segundo como para ordenar sus pensamientos y prosiguió:
+
+—... El culpable, el verdadero culpable de todo esto, no fue sino tu abuelo; sí, tu abuelo Martín Alonso que era por cierto muy simpático, muy galante, muy caballero, muy insinuante... ¡Ah! Y piensa tú si lo conocería yo, cuando como sabes, Martín era primo hermano mío!...
+
+Y entonces Abuelita en un relato que iba a ser muy largo, para mejor explicar el proceso de mi ruina, se subió varias ramas a mi árbol genealógico y comenzó por describir detalladamente la persona y la casa de mi abuelo Martín Alonso, pero allá, en los tiempos remotísimos en que mi abuelo adolescente e hijo de familia no pensaba casarse todavía. Según ella, nada ni nadie igualaría ya nunca en Caracas, el esplendor de aquella casa y de aquellos bailes, celebrados en sociedad muy escogida, llenos de elegancia, de distinción, de suntuosidad... (¡ah! ¡yo me río de la elegancia y de la suntuosidad de aquellos tiempos, Cristina, sin luz eléctrica, las mujeres sin pintar, y las parejas que bailarían algún vals «Sobre las olas» con metro y medio de separación!... Pero no olvides que es Abuelita quien tiene la palabra). La casa de los bisabuelos Alonso era, pues, muy lujosa, porque los Alonso eran tan ricos, tan riquísimos, que eran quizás los primeros capitalistas de Venezuela. Tenían una fortuna en joyas, en tapices, en cuadros, en alfombras, en vajillas... y ¡patatí patatá!... Abuelita que como te he dicho, tiene mucho don de palabra, se puso a detallar con tal entusiasmo la magnificencia de aquella casa y de aquellas fiestas en donde la conoció y cortejó a ella su marido y mi abuelo don Manuel Aguirre, que yo, a pesar de mi horrible mal humor, la vi un instante florecer triunfalmente en los salones Alonso, con su ancha crinolina pompadour, los bucles negros caídos sobre la nuca, el abanico de nácar en una mano, inclinada, sonriente, desmayándose de ingenuidad, junto al futuro académico don Manuel... bueno, algo así que oscilaba entre un retrato de la emperatriz Eugenia, y aquel par de muñecas que yo había dejado una hora antes esponjadas en mi cuarto.
+
+Terminada la descripción o apología de los primitivos Alonso, su casa, y sus bailes, Abuelita se concretó a mi abuelo Martín, príncipe heredero de todo aquel esplendor. Según ella, mi brillante y seductor abuelo, se casó muy joven, se casó muy bien, y su vida hubiera sido tan apacible y feliz como la de sus padres a no haber tenido la desgracia de enviudar a los pocos años de matrimonio...
+
+—...¡Lo mismo, lo mismito que debía pasarle después a tu padre!... En un hondo suspiro, comentó Abuelita al llegar aquí. Tras el comentario hizo una pausa y siguió adelante en su relato.
+
+De tan efímero como feliz matrimonio, a mi abuelo Martín le quedaron dos hijos: tío Pancho y Papá. Con ellos todavía niños se fue a Europa, sólo en viaje de salud, y para regresar apenas unos meses después. Pero una vez en Europa ¡perdió el juicio! aquello se le subió a la cabeza, le entró el delirio de grandezas, se instaló en París a todo tren, se entregó enteramente a las diversiones, y como la vida de disipación y de lujo es una pendiente que conduce a un abismo sin fondo, apegándose cada día más y más a tan frívola existencia no volvió nunca a Venezuela. Allá crecieron sus dos hijos; y aquellos niños, criados en un ambiente de ociosidad y despilfarro, sin hábito ninguno para el trabajo, cuando llegaron a grandes, siguieron el ejemplo de su padre... Entonces, juntos, como tres compañeros de la misma edad, se dieron a la disipación, al derroche, a los placeres, a la más culpable ociosidad e inconsciencia... ¡Ah! ¡los frutos de la mala educación!... ¡Ah! ¡los peligros del lujo!...
+
+Y mientras Abuelita con estas u otras parecidas palabras lamentaba hondamente semejante desordenada existencia, yo, la verdad, lo mismo que me la había imaginado a ella un rato antes, esponjada en su crinolina, me imaginé ahora a mi abuelo y sus dos hijos puestos de frac, corbata blanca; flor en el ojal y chistera un poco ladeada; es decir, algo así como tres joviales personajes de opereta vienesa, de esos que entran alegremente en algún cabaret acompañados de *frou-frous* y de *Mimies*, que se colocan en fila uno tras otro, con una copa de *champagne* en la mano, que levantan a compás el mismo pie, mientras cantan en coro, primero hacia la derecha y después hacia la izquierda aquello de: «¡Viva, viva la alegría!...» o alguna otra sugestiva canción por el estilo... ¡Ah! ¡Cristina, lo que debió divertirse esta Sagrada Familia y el gusto que debe dar tener dinero y ser hombre!...
+
+Unos años después, cuando joven todavía murió mi abuelo, Papá y tío Pancho siguieron gastando locamente, ya sin tasa ni medida. Esto, sumado a una malísima administración, revoluciones, crisis, bajas de precio, etc., hizo que aquella fortuna inmensa acabara de venirse abajo en poco tiempo. Cuando Papá volvió por fin a Venezuela, tenía treinta años y estaba ya casi arruinado. En cuanto a tío Pancho no vino, sino que de acuerdo con sus teorías acerca del uso que debe tener el dinero, resolvió quedarse indefinidamente en París mientras el correo le llevase los célebres cheques de cincuenta mil francos.
+
+Afortunadamente Papá una vez aquí, apremiado por la necesidad, que según Abuelita es la mejor de las madres, se dio a reorganizar su fortuna. ¡Todavía era tiempo de quedar al abrigo de la pobreza! Y así regenerado por el trabajo comenzó a ser otro. ¡Qué actividad, qué inteligencia, qué acierto demostró en la organización de sus intereses!...
+
+A los pocos años de llegar a Caracas se había casado ya, y al casarse acabó de coronar su obra y ordenar su vida. Porque él, que había liquidado toda su maltrecha fortuna, para concentrarla y redimir con ella la hacienda San Nicolás, una hacienda magnífica, una verdadera «mina de oro», que tenía muchísimos años en manos de la familia y que se hallaba ahora exhausta, abandonada, llena de deudas; al casarse, digo, sumó a aquella liquidación de sus propios bienes, la pequeña fortuna de Mamá, y se entregó de lleno a su proyecto: redimir a San Nicolás. Y fue tanto, tantísimo, lo que se apasionó por la agricultura y la reconstrucción de la hacienda, que en San Nicolás se instaló de un todo después de casado, allí se dio a trabajar, alli nací yo; allí pasó sus años felicísimos de matrimonio, y finalmente alli, sin saber cómo, cogió Mamá aquel tifus terrible que la mató en unos días... Poco tiempo después de esta catástrofe, Papá enfermó, triste, neurasténico, lo mismo que había hecho mi abuelo treinta años antes, él también resolvió irse a Europa en viaje de recreo y de salud. Y fue entonces cuando obstinadamente, contra la opinión de Abuelita que se ofrecía a cuidarme durante su ausencia, desoyendo sus consejos, destrozando su corazón al arrancarme de su lado, para no volver ya más, se embarcó en La Guaira con mi aya y conmigo, aquella mañana lejanísima que yo recuerdo aún...
+
+Hasta aquí, Cristina, estoy conforme con el relato de Abuelita; en él aparece la verdad pura y clarísima como aparecen los guijarros en el fondo de un agua muy limpia. Pero como verás de aquí en adelante el agua se ensucia, gracias a la jabonadura de las manos de tío Eduardo, y ya, bajo las palabras sinceramente dichas, la verdad no aparece más ante mis ojos con aquella nítida claridad del principio.
+
+Y es que según parece, Papá, antes de su desgracia, se había entusiasmado con no sé qué empresa industrial de hilandería, y en combinación con ella había hecho una gran siembra de algodón en San Nicolás que se hallaba ya completamente libre y floreciente. Cuando muerta Mamá y enfermo él, resolvió su viaje, asoció a tío Eduardo a la explotación del algodón, a la empresa industrial, le dio poderes generales, y lo nombró administrador de la hacienda. Luego se fue.
+
+—¿Qué ocurrió entonces? –continuó diciendo Abuelita, con su voz afirmativa trémula de convicción–. ¡Pasó lo que yo tanto le anuncié, lo que yo tanto presentía! Una vez allá se quedó en París indefinidamente, volvió a su vida disipada de soltero, se entregó a la ociosidad y gastando de nuevo a manos llenas, poco a poco fue perdiendo su fortuna y junto con ella perdió también lo que sólo era tuyo: ¡la pequeña herencia que te había dejado tu Madre!... Eduardo, por el contrario, trabajaba asiduamente, sin separarse de la hacienda, sin venir casi a Caracas; puede decirse que allí crecieron sus hijos; como es natural hizo economías y mientras tu padre gastaba sin juicio, él iba adquiriendo más y más... Según me ha contado Eduardo, muy poco tiempo antes de la muerte casi repentina de tu papá lo había llamado ya a fin de hacer juntos una liquidación... Esta se hizo después de la desgracia... De ella resultó que Antonio no dejaba sino deudas... y ¡asómbrate! Eduardo, no solamente las cubrió, sino que además con gran generosidad pagó los gastos extraordinarios de clínica y entierro; dio para tu viaje, dio para tu sostenimiento de tres meses en Europa, y por último, en obsequio tuyo, se desprendió también de esos diez mil bolívares que tan irreflexivamente malbarataste en París... ¿Comprendes ahora por qué me molesté ante las alusiones injustísimas de Pancho?... Eduardo ha sido muy generoso contigo; ¡es preciso que lo sepas y se lo agradezcas!... ha sido muy generoso... muy generoso... casi tanto como lo es hoy día conmigo...
+
+Estas palabras finales de Abuelita me habían ido cayendo en el espíritu como me hubiese caído en la cabeza una lluvia de plomo derretido. Sentí... ¡yo no sé lo que sentí!... El tono convencido y rotundamente afirmativo con que hablaba, había domado a tal punto mi espíritu, que en mi alma se mezclaba ahora con desesperada efervescencia, la indignación de la víctima despojada y la perplejidad humillante de la duda:
+
+¡De manera que no solamente no tenía nada, nada en el mundo, sino que además debía vivir eternamente agradecida a tío Eduardo por sus beneficios! Pensaba en el aire de superioridad con que me había tratado María Antonia el día de mi llegada y me daban ganas de quemar uno tras otro todos los objetos adquiridos por medio de aquellos diez mil bolívares. ¡Ah!... ¡qué humillación!... ¡qué rabia!...
+
+Pero de pronto me dominaba otra vez mi primera sospecha: ¡No!... ¡No!... Abuelita que hablaba de muy buena fe, estaría engañada tal vez por tío Eduardo... Sí... sin duda: ¡bien claro lo había dicho tío Pancho!... Además: ¡aquella cara!...¡No en balde, me había parecido tan feo, tan horrible al verle por primera vez a bordo del vapor!...
+
+Cuando la voz de Abuelita, después de elogiar multitud de veces la generosidad infinita de tío Eduardo, se hubo callado al fin, yo, con los dientes muy apretados me quedé reflexionando un instante esto que te llevo dicho. Luego, mientras la gran baraúnda de perplejidades y de dudas se agitaba aún en mí, tratando de fingir indiferencia le repliqué con el mismo tono firme con que había hablado ella:
+
+—Pero Abuelita, yo no vi nunca que Papá viviera en medio de ese despilfarro que tú dices, y siempre, siempre, hablaba de San Nicolás, como si fuese dueño único, exclusivo: ¿cómo es posible que no se hubiera dado nunca cuenta de su absoluta ruina?
+
+—Tu padre, hija mía –continuó diciendo Abuelita con su tono convencido y magnetizador–, tu padre en Europa no volvió a ocuparse más del estado de sus negocios. Vivía entregado a un libro de críticas históricas que según parece estaba escribiendo, y... ¡a otras distracciones!...
+
+Calló un instante, y después añadió más enérgicamente sembrando las palabras de pausas y de misteriosas reticencias:
+
+—¡Ah!... ¡los hombres!... Los hombres, hija mía, gastan a veces mucho... mucho... ¡ese París!... ¡ah! ¡ese París!... es el sepulcro de todas nuestras grandes fortunas, y muchas veces, es también el sepulcro de la felicidad honrada y tranquila...
+
+Continuó hablando y el tono misterioso continuó su obra de sugestión; porque ya, muda, con los ojos abiertos, fijos sobre las matas del patio, sumida enteramente dentro de la duda sólo tenía fuerzas para comentar conmigo misma:
+
+—¡Y quién sabe!... ¡quién sabe!
+
+¡Sí! lo único que verdaderamente sabía, es que en aquella mañana, en aquella hora negra que acababa de pasar, se había revelado a mis ojos un hecho evidente, irremediable y espantoso: ¡la absoluta pobreza, sin más remisión ni más esperanza que el apoyo de los mismos que me habían quizás despojado!
+
+Abuelita, conmovida sin duda por mi silencio aprobador, suavizando la voz más y más, seguía torturándome por querer consolarme:
+
+—Comprendo, hijita mía, que estas noticias te contraríen, pero piensa... ¡piensa que no estás sola en este mundo!... ¡Cuántas otras hay más desgraciadas que tú, porque viven en la absoluta miseria y tienen además que trabajar para poder comer! ¡De cuántos peligros no se ven rodeadas! A ti no te faltará nada mientras yo viva. Desgraciadamente, no soy rica, no tengo sino lo indispensable; pero sé que Eduardo velará siempre por mí, y yo, a mi vez me ocuparé de llenar todas tus necesidades... Por otro lado, eres bonita, distinguida, estás bien educada, perteneces a lo mejor de Caracas... ¡harás sin duda un buen matrimonio! ...No veas tu situación desde el punto de vista europeo. Allá la pobreza de una joven representa generalmente el fracaso completo de su vida. Aquí no... Allá se le dice a la mujer: «Tanto tienes, tanto vales». Aquí no, aquí sólo cuenta el ser bonita y sobre todo: ¡virtuosa! En nuestra sociedad, muy decaída por otros conceptos, existe todavía cierta delicadeza en los hombres. Nuestros hombres, tienen un verdadero culto por la mujer virtuosa, y cuando van a casarse no buscan nunca a la compañera rica, sino a la compañera irreprochable... ¡Por eso, por eso hija mía, te quiero ver siempre sin la más leve sombra de ligereza! Quiero que seas severísima contigo misma, María Eugenia. Óyelo bien: en todas partes, y aquí más que en todas partes, la virtud de una mujer intachable vale muchísimo más que su dinero... Mira, yo era pobre cuando tu abuelo se enamoró de mí y... fui feliz... ¡ah! ¡tan feliz!... Tu abuela paterna, Julia Alonso, se casó con Martín, millonario, cuando ella y su familia vivían en la miseria más completa: ¡tenían que trabajar para poder comer!... Rosita Aristiguieta, parienta nada menos que de Bolívar y del marqués del Toro... Las Urdaneta... Las Soublette... Las Mendoza... María Isabel Tovar, mi prima...
+
+Y remontándose otra vez setenta años arriba, Abuelita, con su voz suavísima de caricia, conmenzó a tejer una tras otra, sencillas crónicas de amor, en las cuales, sin interés de dinero surgían matrimonios de una felicidad idílica, patriarcal...
+
+Sentada junto a ella, mirando las matas del patio, inmóvil, petrificada en mi desastre, me di a escuchar en silencio las viejas historias de las viejas amigas de Abuelita; escuché después las de las hijas, y escuché por fin las de las nietas. Las oí todas con resignación y con melancolía. Y es que para mis oídos, aquellos nombres eran dulcemente evocadores. Los había escuchado muchas veces, pronunciados por la boca de Papá, cuando él también refería con objeto muy distinto al de Abuelita, el mismo proceso de la aristocracia de Caracas, es decir, la dolorosa historia de casi todos aquellos «criollos» descendientes de los conquistadores, que se llamaron «mantuanos» en tiempos de la Colonia, que fundaron y gobernaron las ciudades; que grabaron sus escudos en las puertas de las viejas casonas; que hicieron con su sangre la independencia de media América; que decayeron después, oprimidos bajo las persecuciones y los odios de partido; y cuyas nietas y biznietas hoy día oscurecidas o pobres como lo soy ahora yo, sin avergonzarse jamás de su pobreza, esperaban resignadas la hora del matrimonio o la hora de la muerte, haciendo dulces para los bailes, o tejiendo coronas de flores para los entierros.
+
+Y como el tono, y los nombres, y los relatos, venían a estar de acuerdo con mi estado de ánimo, escuchando la voz de Abuelita, me dejé llevar suavemente en alas de la conformidad; mis nervios comenzaron a deprimirse, las ideas irritantes se apagaron una tras otra; el tono arrullador y maternal como un canto de cuna se insinuó enteramente en mi espíritu y las palabras monótonas acabaron por resonar en mis oídos sin significado... Contemplando las copas verdes de los rosales del patio me di a considerar el eterno reverdecer de las plantas bajo la luz del sol… Sí... La vida tenía una fuerza misteriosa que todo lo vencía... tal vez pudiese yo renacer todavía a la felicidad… como bien decía Abuelita, el matrimonio, esto es, el amor, aquel amor lejano de su juventud, a mí me esperaba todavía en la vida… ¡Quizás llegase con él la realización de tantos anhelos imposibles que me torturaban ahora la existencia!... ¡Mi alma, como aquellos rosales más pequeños del patio no había florecido aún!...
+
+Y mientras la resignación dulce y benigna, se extendía lánguidamente sobre mi alma atormentada, mirando siempre las matas del patio, y con la voz arrulladora siempre en los oídos, me pregunté a mí misma por primera vez con ansia y con curiosidad qué cosa sería realmente el amor, ese amor que me mostraba Abuelita como la única puerta por la cual podía ya salir a la vida, ese amor que habiendo sido siempre familiar a mis oídos parecía encerrar ahora un sentido extraño y desconocido, ese amor que era ya la única redención posible de mi existencia... ¡Ah!... ¡el amor!... ¿qué secreto milagroso se encerraba en lo más íntimo de su esencia?... y además: ¿qué entendería Abuelita por «felicidad»?...
 
 
 
-
-Pero este fastidio cruel que presentí por vez primera la tarde de mi llegada,
-este fastidio que me ha hecho analista expansiva y escritora, tiene una
-raíz muy honda, y la honda raíz tiene su origen en la siguiente reveladora
-escena que voy a referirte y que ocurrió una mañana, a los dos o tres días
-de mi llegada a Caracas.
- Sería a cosa de las once y media. Abuelita, tío Pancho, tía Clara y yo,
-nos hallábamos instalados hacia el fondo del corredor de entrada, allí mis­
-mo, en aquel bosquecillo verde que te he descrito ya; en donde se esparcen
-varios sillones de mimbre alrededor de una mesa; en donde vi blanquear
-el día de mi llegada la cabeza de Abuelita y en donde ella se instala diaria­
-mente con su calado, sus tijeras y su cesta de costura. Aquella mañana ha­
-bíamos entrado por fin en plena normalidad. O sea que yo, luego de pasar
-dos días en una especie de exhibición ante las relaciones góticas de Abue­
-lita, es decir, ante un reducido número de personas de ambos sexos más
-o menos uniformadas en cuanto a ideas, vestimenta y edad, las cuales acu­
-dieron a conocerme y a felicitar a Abuelita por mi feliz llegada, y las cua­
-les, durante unas visitas muy largas, me hicieron todas con ligerísimas va­
-riantes, los mismos cumplidos y las mismas preguntas, aquella mañana,
-digo, terminado ya el desfile, yo había podido al fin entregarme a mi libre
-albedrío y a mis personales ocupaciones. La mañana, dedicada por entero
-al arreglo de mi cuarto, había sido muy bien aprovechada. Al dar las once
-me hallaba cansada y satisfecha, porque hermanando el espíritu de conquis­
-ta al espíritu de conciliación, había logrado imponer mi gusto moderno y
-algo atrevido, sobre el gusto rutinario, simétrico y cobardísimo de tía Cla­
-ra. Sin herir susceptibilidades la obra primitiva se encontraba ya reformada,
-y bajo la presidencia de dos muñecas parisienses, rubias, petulantísimas, y
-vestidas de seda que esponjaban como pantalla sus dos crinolinas, rosa la
-una y verde la otra, sobre mi mesa de noche y sobre mi escritorio, el cuar­
-to se veía ahora bastante contemporáneo y bastante bien. Poco después
-de las once, vinieron a avisarme que tío Pancho había entrado a saludar­
-nos como suele hacer cuando vuelve a esa hora del Ministerio de Relacio­
-nes Exteriores donde desempeña un empleo. Al tener noticias de su lle­
-gada, dejé al punto de contemplar mi obra, y fue entonces cuando entre
- helechos y palmas, hacia el fondo del corredor de entrada, me instalé en
-tertulia con él, con Abuelita y con tía Clara.
- Como era sábado, día de repasar, tía Clara se hallaba ante una cesta
-llena de medias y de ropa, zurciendo una servilleta de hilo ya muy vieja y
-usada; Abuelita, inclinándose mucho sobre las rodillas calaba uno de esos
-pañuelos de seda que doblados luego en cuatro, atados con un lacito, y pues­
-tos en una caja de cartón, distribuye el día de su santo a los nietos; tío
-Pancho, sentado en una mecedora, fumándose un tabaco refería una his­
-toria muy interesante que hacía detener de pronto el calado de Abuelita
-o el zurcido de tía Clara y que a mí no me interesó nada porque trataba de
-personas que me eran completamente desconocidas. Mirando las matas del
-patio descansaba con fruición de la doble fatiga moral y material ocasio­
-nada por el arreglo de mi cuarto, reflexionando al mismo tiempo cuál sería
-la manera más eficaz de desviar el curso de aquella conversación que me
-aburría. De pronto dije atropellando resueltamente la interesante historia:
- ¡Oye, tío Pancho, quiero comunicarte un proyecto; ¡vamos a ir de
-paseo a Los Mecedores, los dos; hoy, mañana, pasado, cuando a ti te pa­
-rezca! Me siento romántica. Tengo unos deseos inmensos de presenciar un
-crepúsculo acostada sobre la hierba, en pleno aire, mirando desde abajo la
-copa de los árboles y, detrás de los árboles, el cielo; ¡deseo muchísimo
-ver otra vez Los Mecedores! Recuerdo que cuando chiquita me llevaban
-allá a hacer ejercicio y me gusctaba mucho. Tomábamos el tranvía y lle­
-gábamos cerca de una iglesia que se llamaba. . . ¿cómo era?. . .
- La Pastora.
- Eso es. ¡Pues vamos a ir un día a Los Mecedores, los d os!. . . ¡Ah!
-y a propósito, Abuelita, ¿cuándo vamos a la hacienda de papá, a San Ni-
-colás?. . . ¿Es tío Eduardo quien la administra siempre, verdad?. . .
- Aquella pregunta que había sido hecha con entera naturalidad y ale'
-gría, se quedó durante un rato como suspendida en el espacio, y hubo un
-silencio, Cristina, un silencio intenso y trágico durante el cual Abuelita
-y tía Clara sin levantar la cabeza de la costura, levantaron la vista y se mi­
-raron un instante por encima de los ojos redondos de sus respectivos len­
-tes. Luego, volvieron a la costura, y fue entonces cuando Abuelita, co­
-siendo y sin mirarme se decidió a hablar en un tono muy dulce y con­
-movido:
- San Nicolás es de Eduardo, mi hija.
- Y esto lo dijo con la misma compasión con que se le habla a los niños
-muy pobres cuando quieren comprar en las tiendas un juguete de lujo.
-Después de la frase compasiva y breve, hubo otro silencio mucho más
-largo, más intenso y más trágico que el anterior. Era el silencio horrible
-de la revelación. Envuelta en la voz de Abuelita, la verdad se había pre­
-sentado a mi espíritu tan clara y terminante que no pedí ninguna ex­
-plicación, ni hice ningún comentario. Comprendí que debía ser irremedia­
-ble y decidí aceptarla desde el principio con valentía y con altivez. Sin
- embargo, Cristina, las consecuencias que surgían en tropel de aquella re­
-velación eran demasiado enormes para que 370 me las viese al momento y
-para que su vista no desencadenase en mi alma una horrible tempestad in­
-terior. ¡San Nicolás era de tío Eduardo! No sabía cómo, ni por qué, pero
- ¡era de tío Eduardo! por lo tanto, yo, que me creía rica, yo, que había
-aprendido a gastar con la misma naturalidad con que se respira o se anda,
-no tenía nada en el mundo, nada, fuera de la protección severa de Abue-
-lita, que se inclinaba ahora sacando la aguja por entre las hebras del pa­
-ñuelo de seda, y fuera del cariño jovial de tío Pancho, que también calla­
-ba enigmático recostado en la mecedora, apretando entre los dientes el ta­
-baco encendido y oloroso. . . Con mis ojos espantados les miré a los dos y
-seguí luego contemplando interiormente la horrible noticia que se abría de
-golpe ante mi porvenir, como una ventana sobre una noche lúgubre: ¡la
-pobreza!. . . ¿Comprendes bien, Cristina, todo lo que esto significaba?. . .
-Era la dependencia completa con todo su cortejo de humillaciones y dolores.
-Era el adiós definitivo a los viajes, al bienestar, al éxito, al lujo, a la ele­
-gancia, a todos los encantos de aquella vida que había entrevisto apenas
-durante mi última permanencia en París, y a la que aspiraba yo con vehe­
-mente locura. Era también el adiós definitivo para ti y para tantas otras
-cosas y personas que no había conocido nunca y que presentía esperándome
-gloriosas por el mundo. . . ¡el mundo!. . . ¿sabes?. . . ¡todo el caudal de
-felicidad y de alegría que se agita más allá de las cuatro paredes de hie­
-rro de esta casa de Abuelita!. . . ¡Ay! la alegría, la libertad, el éxito ¡ya
-no serían míos!. . . Y ante semejante idea, sentí que un nudo me apretaba
-espantosamente la garganta y que un torrente de lágrimas me asediaba
-impetuoso y terrible. . .
- Para poder disimular y contener las lágrimas empecé por bajar los ojos
-y clavarlos en el suelo. Allí, me di a contemplar fijos sobre el mosaico
-los zapatos de Abuelita, tía Clara y tío Pancho. No sé por qué me pareció
-que aquellos zapatos tenían una fisonomía especial y que con ella me es­
-taban mirando. Es muy curioso el observar, Cristina, cómo en los momen­
-tos de crisis aguda los objetos que nos rodean se animan de vida. Hay veces
-que parecen hacerse cómplices del mal que nos tortura; otras, por el con­
-trario, nos miran con una intención cariñosa y triste como si quisieran con­
-solarnos. En aquel instante me pareció que aquellos seis zapatos en sus di­
-versos aspectos o actitudes, tenían todos la expresión uniforme que tienen
-los públicos. Y era una expresión no sé si de burla o de lástima. Ambas
-cosas me desagradaban igualmente; pero como quería triunfar de mi emo­
-ción me dije que se burlaban de mí. Juzgué mi situación ridicula. Recordé
-la mirada de inteligencia que habían cambiado Abuelita y tía Clara por en­
-cima de sus lentes. Pensé que si tenía una crisis de llanto, ellas la referirían
-sin duda a tío Eduardo, me imaginé a tío Eduardo comentándola a su vez
-con su mujer y sus hijos; y enardecido terriblemente mi orgullo ante esta
-última imagen, acabé por triunfar de mi gran emoción. Entonces, para asu­
- mir al punto una actitud cualquiera, alcé la cabeza, miré a los circunstan­
-tes, respiré con violencia, exclamé:
- ¡Ay! ¡qué calor!
- Y levantándome del asiento que ocupaba, me senté de un salto con mu­
-cha agilidad sobre una mesita o columna dedicada a sostener una de las
-grandes macetas de palma que en aquel instante tomaba el aire y el sol
-en el patio; una vez allí, me puse la mano izquierda en la cintura y me di
-a balancear el pie derecho con un movimiento acompasado de péndulo, cuyo
-extremo llegaba hasta hacer chocar la punta de mi zapato contra el borde
-de aquella mesa de mimbre alrededor de la cual se hallaban Abuelita, tía
-Clara y tío Pancho. Sentía que semejante actitud debía darme un aspecto
-de absoluta despreocupación y balanceaba el pie con estoicismo, con orgu­
-llo y con convicción.
- Pero todo esto que detallado aquí parece larguísimo había ocurrido ape­
-nas en el breve espacio de un minuto. Bajo el rítmico balanceo de mi pie
-los tres circunstantes continuaban aún en completo silencio e inmovilidad.
-Sólo Abuelita, optó de repente por levantar los ojos del calado, me observó
-unos segundos y como mi actitud pareciese convencerla del todo, volvió
-a bajar la vista y siguió calando con mucha tranquilidad el pañuelo de se­
-da. Se imaginó cándidamente que la noticia anunciada por ella como una
-bomba, me tenía sin cuidado. Eso era lo que yo quería y por lo tanto me
-sentí satisfecha. Pero te aseguro, Cristina, que desde aquel momento, Abue­
-lita comenzó a desprestigiarse muchísimo ante mis ojos. Comprendí que
-tenía muy poca penetración y que carecía en absoluto de sutileza psicoló­
-gica. En el fondo me alegro de que así sea. Es muy incómodo vivir con
-personas dotadas de penetración y de sutileza psicológica. Se pierde en ab­
-soluto la independencia y no es posible engañarlas jamás porque todo lo
-ven. Sin embargo, Abuelita tiene entre sus relaciones fama de gran inte­
-ligencia. ¡Ah! pero desde ese día cuando me dicen a mí: «el talento de tu
-Abuela» yo exclamo inmediatamente en mi fuero interno: «¡N o es ver­
-dad, no tiene ninguno!».
- Como te decía, Abuelita, luego de observarme sin hacer comentario, vol­
-vió a su costura, enhebró la aguja que se le había desenhebrado, dio unas
-cuantas puntadas, levantó otra vez la cabeza, volvió a observarme y en­
-tonces dijo:
- María Eugenia, hija mía, oye: eres distinguida, bien educada, tienes
-bastante instrucción, sabes presentarte correctamente, y sin embargo algu­
-nas veces tomas esos modales de muchacho de la calle. Mira: en lugar de
-sentarte en una silla como los demás, estás sentada ahí arriba, al nivel de
-mi cabeza en esa columna que se puede venir abajo con tu peso. Se te
-ven las piernas hasta las rodillas, tienes una mano en la cintura lo mismo
-que las sirvientas, y estás balanceando el pie con un movimiento vulgarí­
-simo. . . Además, fíjate, mira, al darle así a la mesa con la punta del za­
- pato echas a perder a un tiempo las dos cosas: la mesa y la punta de tu zapa­
-to nuevo...
- Terminada esta exhortación dejé de balancear el pie y me quité la ma­
-no de la cintura, pero como sentía una necesidad violenta de destruir algo,
-sin bajarme de la columna, cosa que hubiera sido demasiada obediencia,
-empecé a surcar con la uña una hoja de palma que para desgracia suya se
-encontraba a mi alcance. Abuelita entretanto había vuelto a sumirse en
-el calado y callaba de nuevo. Su pensamiento debió caminar ahora por el
-terreno de los asuntos económicos, porque al cabo de un rato dijo con
-entera naturalidad:
- Se me olvida siempre preguntarte, María Eugenia: ¿trajiste los diez
-mil bolívares que te giró Eduardo a París por medio de Antonio Ramí­
-rez?. .. Con el cambio me parece que alcanzaban a unos cincuenta mil
-francos. . .
- Sí; en efecto, cincuenta mil francos, de los cuales, Abuelita, la última
-moneda de oro la cambié en la Habana. Por cierto que si no va tío Eduardo
-a buscarme a bordo, te advierto que de mi propio pecunio no hubiera po­
-dido pagar quien me cargase una maleta y balanceando otra vez el pie,
-pero con impulso tan fuerte que estuve a pique de irme para atrás con
-columna y todo añadí : ¡No me quedó ni un céntimo, ni medio céntimo,
-ni un cuarto de céntimo! ¡Nada! ¡nada! ¡¡nada!!
- Abuelita soltó el pañuelo, el dedal, la aguja, y se quitó los lentes es­
-pantada:
- ¿Gastaste todos los diez mil bolívares?. . . ¿los tiraste a la calle?. . .
- ¡Ave María! ¡qué locura!. . . Si se lo dije a Eduardo: No mandes ese di­
-nero sin advertir antes a Ramírez pero se empeñó en girarlo por cable
-y ¡aquí está el resultado!... ¡De modo que gastaste los diez mil bolíva­
-res! . . . Pero dos mil fuertes colocados al nueve te hubieran producido
-unos quince fuertes mensuales, mi hija: tal vez se hubieran podido colocar
-al diez, hasta al doce y hubieran sido entonces ochenta o cien bolívares al
-m e s.. . piensa. . . hubieras tenido algo, muy poco, una miseria, pero en
-fin algo, ¡algo para gastos de bolsillo siquiera!. . . Ese dinero se mandó a
-París, sólo por previsión, en caso de un accidente, de una enfermedad. Un
-mes antes se había girado al consulado una letra para tu viaje, para pagar
-cualquier gasto extraordinario que hubiera ocasionado la muerte de tu pa­
-dre y para tu luto. ¡Era más que suficiente!
- ¡Ah! el celo extremado de Abuelita hacia aquellos dos mil fuertes, últi­
-mo jirón de mi patrimonio, me crispaba horriblemente los nervios, ahora
-que ante mis ojos acababan de esfumarse los muchos miles que representa­
-ba San Nicolás. Mientras ella hablaba exaltadísima, yo, que me encontraba
-ahora sobre la columna, inmóvil y heroica como el Estilita, tuve de pronto
-el firme presentimiento de que tío Eduardo había rendido con mi heren­
-cia las cuentas del Gran Capitán, y sentí una rabia espantosa. Esta rabia al­
-canzó su período álgido cuando Abuelita dijo: «hubieras tenido muy poco,
- una miseria, pero en fin, algo, algo. . . » y como me imaginase al punto la
-cabeza antipática de tío Eduardo, me apresuré a insultarla con toda mi alma,
-dirigiéndole en pensamiento y de carretilla los siguientes apostrofes: «Viejo
-avaro, ladrón, canalla, cursi, gangoso, escoba vestida de hombre» e injus­
-tamente, hice a Abuelita cómplice de mi desgracia. Entonces, con el objeto
-de molestarla de cualquier manera, cuando terminó de hablar, fingiendo
-buen humor, exclamé alegrísima:
- ¡Ay! Abuelita, Abuelita ¡y cómo se conoce que no has estado nunca
-en París! Yo me hice mis vestidos de luto en Biarritz; ¡claro! pero lo que
-pasa siempre: te haces un vestido nuevo, llegas a París y parece viejo. . .
-Mira, en París, Abuelita, no me puse ni una vez los vestidos de Biarritz,
-ni los estrené, ni me molesté en guardarlos siquiera, porque su vista, sí, el
-verlos nada más de lejos, colgados en el armario me repugnaba: olían a
-colegio, a ingenuidad, a burguesía, ¡qué horror! ¡Ah! fue en París, Abuelita,
-donde ya aprendí a vestirme, donde sentí de lleno esta revelación del
-chic!. . . Los vestidos de Biarritz que eran más o menos. . . ¡pss!. . . diez
-o doce, se los regalé todos a la camarera del hotel. . . como eran negros, a
-la camarera le quedaban bastante bien, con la cofia de batista y esos delan-
-talitos de. . .
- Abuelita me interrumpió desesperada, y con los lentes trémulos, enarbo-
-lados en la mano derecha, exclamó varias veces, en ese tono trágico en
-que se lamentan las catástrofes irremediables:
- ¡Qué locura, Señor, qué disparate, cincuenta mil francos en trapos
-cuando ya estaba equipada para el viaje!
- ¿Pero no viste ayer mis vestidos, mis sombreros, mis medias, y mis
-combinaciones de seda, o crees acaso, Abuelita, que eso se regala en Pa­
-r í s ? ... ¡Si demasiado barato lo compré todo! aquello representa lo muy
-menos. . . lo muy menos: ¡ochenta mil francos!. . . A ver, tú, tú, tío Pan­
-cho, que según dices has pagado muchos sombreros en París, di: ¿están
-caros mis sombreros? ¿están caros?. . .
- Y esta última pregunta la hice con tantísima vehemencia que estuve de
-nuevo a punto de caerme de la columna, pero esta vez de narices y en di­
-rección a tío Pancho. El me consideró un instante y respondió evasivo en­
-volviendo la respuesta en una bocanada de humo:
- Acuérdate que todavía no me has enseñado tus sombreros, María
-Eugenia.
- Bueno: pues mira; lo más elegante, lo más bonito, lo más dernier cri,
-que has visto en tu vida. ¡Figúrate que llamaban la atención en París!.. .
-Y como yo tenía con ellos tanta personalidad, tanta allure, pues no me lla­
-maban sino «Madame». . . s í ;. . . «Madame Alonso».
- ¡Ay! María Eugenia dijo Abuelita asustada desmayando sobre la
-falda la mano de los lentes- ¡quién sabe hija mía, quién sabe por lo que
-te tomaban! Y para hacer ese papel tan triste botaste tu dinero!
- ¿Cómo, para hacer ese papel tan triste? Mira, Abuelita, cuando se tiene
- dinero en París, y ese dinero se bota, como tú dices, pasas a ser más que un
-rey y más que un emperador. Te parece que todo es tuyo. La plaza de la
-Concordia, por ejemplo, es como si fuera . . . ¡pss! el patio de tu casa, los
-Campos Elíseos el zaguán de entrada, el Bosque de Bolonia tu corral, total,
-que acabas por convencerte de que vives en una especie de hacienda tuya en
-donde todo el que pasa está a tus órdenes para lo que quieras mandar. La prue­
-ba de lo que te estoy diciendo es esto que me ocurrió una de esas mañanas
-de sol en que uno se siente muy alegre: iba yo subiendo hacia la Estrella
-cuando mi taxi se quedó estacionado en plenos Campos Elíseos porque esta­
-ban arreglando la calzada y la circulación se hacía difícil. De pronto, gran
-sensación, pasaba el Presidente de la República con comitiva de ministros
-llenos de coronas y discursos que se iban a celebrar una de sus eternas cere­
-monias ante la tumba del soldado desconocido. Bueno ¿tú crees que me
-impusieron ellos a mí, o que me dieron ni por un segundo la sensación de
-mando? ¡Todo lo contrario! Como ésos del gobierno tienen por lo general
-un aire tan desgraciado y llevan tan mal la ropa ¿sabes lo que les grité en
-pensamiento desde mi taxi parado? Pues saqué la cabeza y les dije así con
-mucho cariño: ¡Adiós el mayordomo y el peonaje! Y a ver por Dios cuándo
-me acaban de arreglar el piso que es una vergüenza lo que dura ya esto, aquí
-me quedo todos los días como están viendo, y llego en retardo para mis prue­
-bas que son por lo general cosas de muchísimo apuro. Y a ver también si
-aprenden a tener un poco más de gracia, y que se afeiten tanto bigote que eso
-ya no se usa, y que se adelgacen, y que crezcan. ¡Ahur! ¡Recuerdos al Des­
-conocido! .. .
- María Eugenia interrumpió Abuelita , mi Madre decía siempre que
-Dios nos toma en cuenta las tonterías y las palabras inútiles. Según eso, mi
-hija, tú, vas a tener mucha cuenta que entregarle a Dios.
- Yo volví a la anterior conversación y seguí enumerando mis gastos:
- Bueno, además de los sombreros, el calzado todo a medida; añade los
-déshabillés; añade la liseuse de encaje, añade el kimono negro. . . ¡ah!, y
-sobre todo: ¡los regalos!. . . se me olvidaba, los regalos me costaron carísi­
-mos . . . Fíjate, Abuelita, fíjate en la etiqueta de las cajas, todas cosas finas
-de la rué de la Paix . . . ¡Ah!, ¡es que yo no regalo pacotilla!
- ¡Ah! no, no regalas pacotilla volvió a decir Abuelita sulfurada, enar-
-bolando otra vez los lentes -. ¡Si me parece que estoy oyendo a tu Padre!
-¡Qué caracteres de despilfarro! ¿Pero tú te imaginas, hija mía, que puede
-causarme algún placer ese saco de mano que me trajiste, ahora que sé de dón­
-de salió y lo que te costaría?
- ¡Pero yo tuve gusto en regalártelo y eso me basta! . . . ¡Ah! ¡si supieras
-lo que yo aproveché mi dinero! ¡si supieras lo que me encanta probarme
-vestidos y más vestidos . . . Mira, me iba a casa de Lelong quien, te advierto
-entre paréntesis, siendo de lo más chic, tiene precios bastante moderados,
-pues yo soy económica aunque tú no lo creas. Bueno, me iba a casa de
-Lelong: ¡y a probarme!. . . que éste sí; que éste también; que aquél me
- queda que es una maravilla; que este otro me queda todavía mejor; y la
-vendedora que decía admirada: «¡Con ese vestido parece una Reina! . . . pero
-le advierto que es el más caro de todos . . . » y yo, que respondía con este
-ademán así de millonaria elegante: «El precio es lo de menos!», y a ver más
-modelos, y a tiendas, y a correr bulevares, arriba, abajo, sola, sola, sólita, de
-mi propia cuenta! . . . ¿Crees, crees, Abuelita, que cambio esos días de liber­
-tad por tener veinte miserables fuertes mensuales?. .. ¡Ah! ¡no, no y n o !.. .
- Sí; ya sabía por Eduardo, a quien se lo contaron en La Guaira, que
-andabas sola por las calles de París, y eso me contrarió muchísimo. No com­
-prendo cómo Ramírez, un hombre sensato, pudo autorizar jamás semejante
-locura. ¡Una niña de dieciocho años, sola de su cuenta, en una capital como
-ésa! ¡Qué disparate! ¡Qué peligro!. . . ¡Cuando lo pienso!. . . Y no te figu­
-res que aquí en Caracas puedes hacer lo mismo . . .
- ¡Ah! ¿de modo que esas eran «las ocupaciones» que tenía tío Eduardo
-en La Guaira? Andar averiguando lo que yo hice en París para venir a con'
-tártelo a ti. Quiere decir que también es espía y chismoso. ¡Con aquella cara
-de mosca muerta!
- ¡Eso no es chisme! Era su deber advertirme, así como también es mi
-deber aconsejarte que no vuelvas nunca a cometer semejante imprudencia.
- Tío Pancho y tía Clara, con ese tacto sutil que tienen las almas muy bue­
-nas, sí debieron sentir la tempestad subterránea que se desarrollaba en mi
-alma, bajo aquella discusión trivial con Abuelita. Respetaban los dos mi
-dolor con su silencio; ella muy abismada en el pasar de la aguja por la trama
-del zurcido; él distraído, echado hacia atrás, la cabeza sobre el respaldo de la
-mecedora, siguiendo con una mirada vaga las figuras alargadas y tenues, que
-el humo del tabaco iba forjando en el aire. De pronto se levantó; tiró la coli­
-lla entre las matas del patio, se quedó un rato pensativo, se vino luego hacia
-mí, se paró frente a la columna con los pies separados, las dos manos en los
-bolsillos del pantalón, la chaqueta recogida tras la actitud de los brazos y así,
-entre irónico y festivo, intervino al fin:
- ¿Te divertiste con tus cincuenta mil francos? . . . ¿Sí? . . . ¿bastante? . ..
-pues entonces estuvieron ¡muy bien gastados! . . . ¡Ah! sobrina, no sabes tú
-la serie de cheques de a cincuenta mil francos, que gasté yo en París, y como
-a ti: ¡no me pesa! Más vale gastar el dinero en divertirse, que gastarlo en
-malos negocios de los cuales se aprovecha infaliblemente un tercero. Al menos
-divirtiéndose con él no se corren riesgos de hacer el papel de imbécil. . .
- Pero Abuelita y tía Clara, con gran vehemencia le cortaron la palabra a tío
-Panchito, por medio de dos distintas objeciones. Tía Clara dijo:
- ¡Pero cómo te figuras, Pancho, que María Eugenia podía divertirse en
-París, cuando el cadáver de su padre estaba todavía caliente como quien
-dice! . . . ¡No la creo tan sin corazón!
- Y Abuelita por su lado, dominando la voz de tía Clara se puso a decir
-exaltadísima:
- ¡Eso faltaba, Pancho, eso no más faltaba, que vinieras tú ahora a predi-
- carie a esta niña tus doctrinas corrompidas! ¿Por qué no le aconsejas tam­
-bién que beba, o que se ponga morfina o cocaína ahora que no tiene cómo
-gastar?
- Tío Pancho, sin modificar su actitud se volvió ligeramente hacia Abuelita
-y dijo con mucha calma:
- Supongamos, Eugenia, que esta niña, movida por un espíritu de economía
-y de prudencia llega a Caracas con su cheque de cincuenta mil francos sin
-cobrar . . . ¿Qué hubiera sucedido? Usted, en su justo afán de acrecentar la
-suma, se entusiasma con tal o cual negocio que tiene Eduardo en San Nicolás.
-En una siembra de algodón, de tabaco, o de papas, un negocio seguro, segu­
-rísimo .. . Eduardo cede generosamente a María Eugenia un tablón de la
-hacienda; se planta la semilla, pero viene un invierno, un gusano o la langos­
-ta; precisamente, es del tablón de María Eugenia del que se encapricha la
-plaga y: «De profundis clamavi ad te Dómine . . . » ¡no quedan de él ni ceni­
-zas! . . . ¿no es mil veces mejor que haya entonces empleado su dinero en
-divertirse?. .. ¡Ah! en negocios de agricultura, que son los que hasta ahora
-hemos acostumbrado hacer en la familia, resulta que las calamidades y los
-malos precios se alian siempre contra el ausente, la mujer o el menor, quienes
-pierden indefectiblemente . . . Ocurre . . . ¡lo natural! . . . lo que ocurrió en
-el cuento de aquel almuerzo celebrado entre marido y mujer: ¡la ración del
-ausente es siempre la que se come el gato!
- Aquello era una explicación clarísima de lo que yo quería saber y como
-resultó ser lo mismo que había sospechado, sonreí placentera y exclamando
-interiormente:
- ¡No lo dije!
- Y creo sin duda ninguna, que me habría bajado de la columna para abrazar
-a tío Pancho por su valiente acusación, si no fuese porque Abuelita, enarde­
-cida quizás por mi presencia y mi sonrisa, se había erguido terrible contra el
-respaldo de su sillón de mimbre, y así, erguida, terrible, lastimada en lo más
-vivo de su amor de madre, estalló con la arrogancia de una leona:
- ¡Eso no puedo tolerarlo, Pancho, que aquí, en mi casa, en mi presencia,
-frente a mí, te atrevas a expresarte de Eduardo en esa forma y muchísimo
-menos todavía que lo desprestigies delante de esta niña, con quien ha sido
- él, demasiado lo sabes, tan bueno y tan generoso como un mismo padre! . . .
- ¡Por decir cosas que tú supones graciosas no respetas nada, ni lo más santo,
-ni lo más sagrado! ¡Creo que Eduardo ha dado en su vida suficientes pruebas
-de ser un hombre íntegro y honrado! . . . ¡Ha levantado una familia honora­
-ble, ha pasado su vida trabajando, nunca se ha arrastrado en política, ni como
-hacen otros, ha avergonzado jamás a su familia entregándose a la bebida y al
- juego!. . .
- Y al hablar así, Abuelita estaba imponente y magnífica.
- Porque sucede, Cristina, que Abuelita, quien jamás sale a la calle; rodeada
- como está siempre por el ambiente solariego de esta casa, encastillada en sus
- ideas de honor; aureolada por sus años y su virtud austera, tiene realmente
- el prestigio de las grandes señoras que infunden en cuantos las rodean un
-respeto profundo. Del trato con mi abuelo, su marido, que fue poeta, histo­
-riador, ministro y académico, adquirió un ademán distinguido en el decir y
-la palabra fácil y elegante, circunstancias que le han valido sin duda ninguna
-su gran fama de inteligencia. En aquel instante, defendiendo a su hijo de las
-sospechas que las palabras de tío Pancho hubieran podido despertar en mi
-espíritu, estaba como te digo, soberbiamente altiva. Sus ojos ya apagados de
-ordinario, brillaban ahora encendidos por el fuego de la santa indignación, y
-enarcados por las cejas severas, realzados por la majestad de los cabellos blan­
-cos, infundían temor.
- Y no puedo negarte que durante un instante olvidé mi propio infortunio
-para admirar a Abuelita: la admiré con sorpresa, con veneración y con orgu­
-llo, por la majestad y por la elegancia que tenía para indignarse.
- Pero en cambio, tío Pancho, que como te he dicho ya es insensible a la
-elocuencia y a cualquier otra de estas manifestaciones sublimes en que suelen
-exteriorizarse la cólera, el entusiasmo, o la desaprobación, permaneció impa­
-sible. Cuando Abuelita remató su brillante apología de tío Eduardo con
-aquella frase alusiva e hiriente: «No ha avergonzado jamás a su familia entre­
-gándose a la bebida y al juego . . .», tío Pancho, este tío Pancho que es incon­
-movible, sin decir ni una palabra, siguió inmóvil frente a Abuelita, con sus
-dos manos en los bolsillos, indiferente, apacible, silencioso, contemplando
- sobre el patio la inmensidad del espacio, como una roca erguida frente a un
-mar tempestuoso. Estoy cierta que pensaba:
- ¿Y para qué contestar? .. . ¿De qué sirven las palabras? . . . ¡Si tam­
-bién son paravanes, mentiras, monedas falsas! . . .
- Pero esto no lo dijo sino que debió reflexionarlo mientras callaba, durante
- la larga pausa que siguió a la indignación de Abuelita, como la calma sigue a la
-borrasca. Luego, en la misma actitud reflexiva y silenciosa dio unos cuantos
- pasos por el corredor; pero a poco se detuvo, sacó el reloj del bolsillo de su
- chaleco, lo miró, exclamó:
- ¡Diablo!, si ya van a dar las doce!
- Y muy tranquilamente, como si nada hubiese ocurrido tomó del colgador
- su bastón, su sombrero; se puso el sombrero; se asomó un segundo al espejo
- angosto del colgador; se despidió sonriente:
- ¡Hasta mañana!
- Sonó la puerta de la calle que se cerró tras él, y los pasos se fueron apagan­
- do por el zaguán y la acera.
-
-
-
-
-En efecto, a poco de salir tío Pancho, en plenos puntos suspensivos, el
-reloj de Catedral, un reloj filarmónico, Cristina, un reloj sochantre, que aso­
-mado a los cuatro costados de la torre se pasa el día cantando las horas, las
-medias y los cuartos con un canto monótono que se oye de toda la ciudad, y
- que de noche recuerda el fraternal e igualitario «de morir tenemos» de los
-Cartujos: comenzó a cantar con mucha filosofía y unción:
- Tin, tan; tin tan; . . .
- Bueno, una especie de canción que en notas musicales viene siendo:
- ¡Mi, do, re, sol! . . . (un cuarto) ¡Sol, re, mi, do! (otro cuarto) ¡Do, sí,
-la, mi! . . . etc., etc.
- Tía Clara dijo al momento:
- ¡Son las doce!
- Y puesta en pie como por resorte se santiguó y entonó el Angelus en voz
-alta.
- Yo, en vista de mi malhumor, resolví no contestar en coro con Abuelita,
-ni a la salutación ni a las avemarias. Tía Clara me dirigió por ello una mirada
-de desaprobación mientras decía:
- «El verbo se hizo carne» .. .
- Pero yo continué callada, y ella, luego de terminar, volvió a santiguarse y
-sin decir más nada, recogió la ropa y las medias; las dobló; las metió en la cesta;
-se fue taconeando; y cuando el rítmico martilleo se perdió ahora también
-más allá del comedor y del segundo patio, entre Abuelita y yo se interpuso
-definitivamente un silencio penoso. De un salto me bajé al momento de la
-columna con el objeto de alejarme a mi vez, pero Abuelita me hizo señas de
-que viniese a sentarme en la sillita baja de tía Clara que se hallaba a su lado,
-y entonces, poniéndome una mano en el hombro, y con una voz muy suave,
-muy cariñosa, muy persuasiva comenzó a decirme dejando por completo de
-coser:
- Mi hija, ya no eres una niña inconsciente. Ya estás en edad de compren­
- derlo todo. Tienes una inteligencia muy clara, un corazón muy recto, y es
- preciso que con ellos juzgues las cosas tales como son, sin guardar nunca para
-nadie ni odio ni rencor. Las mujeres, hija mía, hemos nacido para el perdón.
-El tesoro de nuestra indulgencia no debe agotarse nunca, ni aun en medio
- de las más crueles espinas del sacrificio. ¡Con cuánta mayor razón si ese teso­
- ro se prodiga sobre seres tan queridos como son nuestros padres! . . . Las
- palabras imprudentes de Pancho me obligan a hacerte explicaciones que hasta
- cierto punto hubiera preferido que ignoraras siempre; pero dadas las circuns­
- tancias, es para mí un deber moral defender a Eduardo de cargos que injusta­
- mente se le imputan . . . Oyeme bien, hija mía, porque yo que te quiero como
- no te quiere nadie, te hablo con entera justicia: Si hoy no tienes nada en la
- hacienda San Nicolás, y ni un céntimo tampoco de la herencia que te dejó tu
- padre, es única y exclusivamente por culpa de tu padre, que vivió al día, como
- gran rentista, entregado a la más absoluta indolencia, sin pensar jamás en
- el mañana ni en la muerte . . . ¡Ah!, y este mal funesto que es el mismo de
- Pancho, es un mal de educación, un mal que proviene de muy atrás, y que por
- lo tanto no puede reprochársele a ninguno de los dos . . .
- Calló un segundo como para ordenar sus pensamientos y prosiguió:
- . . .El culpable, el verdadero culpable de todo esto, no fue sino tu abue­
- lo; sí, tu abuelo Martín Alonso que era por cierto muy simpático, muy galan­
-te, muy caballero, muy insinuante . . . ¡Ah! Y piensa tú si lo conocería yo,
-cuando como sabes, Martín era primo hermano mío! . . .
- Y entonces Abuelita en un relato que iba a ser muy largo, para mejor expli­
-car el proceso de mi ruina, se subió varias ramas a mi árbol genealógico y
-comenzó por describir detalladamente la persona y la casa de mi abuelo Mar­
-tín Alonso, pero allá, en los tiempos remotísimos en que mi abuelo adoles­
-cente e hijo de familia no pensaba casarse todavía. Según ella, nada ni nadie
-igualaría ya nunca en Caracas, el esplendor de aquella casa y de aquellos bailes,
-celebrados en sociedad muy escogida, llenos de elegancia, de distinción, de
-suntuosidad . . . ( ¡ah! ¡yo me río de la elegancia y de la suntuosidad de aque­
-llos tiempos, Cristina, sin luz eléctrica, las mujeres sin pintar, y las parejas
-que bailarían algún vals «Sobre las olas» con metro y medio de separación! . . .
-Pero no olvides que es Abuelita quien tiene la palabra). La casa de los bisa­
-buelos Alonso era, pues, muy lujosa, porque los Alonso eran tan ricos, tan
-riquísimos, que eran quizás los primeros capitalistas de Venezuela. Tenían
-una fortuna en joyas, en tapices, en cuadros, en alfombras, en vajillas . . . y:
- ¡patatí patatá! . . . Abuelita que como te he dicho, tiene mucho don de pala­
-bra, se puso a detallar con tal entusiasmo la magnificencia de aquella casa y
-de aquellas fiestas en donde la conoció y cortejó a ella su marido y mi abuelo
-Don Manuel Aguirre, que yo, a pesar de mi horrible mal humor, la vi un
-instante florecer triunfalmente en los salones Alonso, con su ancha crinolina
-pompadour, los bucles negros caídos sobre la nuca, el abanico de nácar en
-una mano, inclinada, sonriente, desmayándose de ingenuidad, junto al futuro
- académico Don Manuel. . . bueno, algo así que oscilaba entre un retrato de la
- Emperatriz Eugenia, y aquel par de muñecas que yo había dejado una hora
- antes esponjadas en mi cuarto.
- Terminada la descripción o apología de los primitivos Alonso, su casa, y
- sus bailes, Abuelita se concretó a mi abuelo Martín, príncipe heredero de
- todo aquel esplendor. Según ella, mi brillante y seductor abuelo se casó
- muy bien, y su vida hubiera sido tan apacible y feliz como la de sus padres a
- no haber tenido la desgracia de enviudar a los pocos años de matrimonio. . .
- . .. ¡Lo mismo, lo mismito que debía pasarle después a tu padre!. . . en
- un hondo suspiro, comentó Abuelita al llegar aquí. Tras el comentario hizo
- una pausa y siguió adelante en su relato.
- De tan efímero como feliz matrimonio, a mi abuelo Martín le quedaron
- dos hijos: tío Pancho y papá. Con ellos todavía niños se fue a Europa, sólo
- en viaje de salud, y para regresar apenas unos meses después. Pero una vez
- en Europa ¡perdió el juicio! aquello se le subió a la cabeza, le entró el delirio
- de grandezas, se instaló en París a todo tren, se entregó enteramente a las
- diversiones, y como la vida de disipación y de lujo es una pendiente que con­
- duce a un abismo sin fondo, apegándose cada día más y más a tan frívola
- existencia no volvió nunca a Venezuela. Allá crecieron sus dos hijos; y aque­
- llos niños, criados en un ambiente de ociosidad y despilfarro, sin hábito nin­
- guno para el trabajo, cuando llegaron a grandes, siguieron el ejemplo de su
-padre . . . Entonces, juntos, como tres compañeros de la misma edad, se dieron
-a la disipación, al derroche, a los placeres, a la más culpable ociosidad e
-inconsciencia . . . ¡Ah! ¡los frutos de la mala educación! . . . ¡Ah! ¡los peligros
-del lujo! . . .
- Y mientras Abuelita con estas u otras parecidas palabras lamentaba honda­
-mente semejante desordenada existencia, yo, la verdad, lo mismo que me la
-había imaginado a ella un rato antes, esponjada en su crinolina, me imaginé
-ahora a mi abuelo y sus dos hijos, puestos de frac, corbata blanca, flor en el
-ojal y chistera un poco ladeada; es decir, algo así como tres joviales persona­
-jes de opereta vienesa, de esos que entran alegremente en algún cabaret acom­
-pañados de frou-frous y de Mimies, que se colocan en fila uno tras otro, con
-una copa de champagne en la mano, que levantan a compás el mismo pie,
-mientras cantan en coro, primero hacia lá derecha y después hacia la izquierda
-aquello de: «¡Viva, viva la alegría! . . . » o alguna otra sugestiva canción por
-el e stilo ... ¡Ah! ¡Cristina, lo que debió divertirse esta Sagrada Familia y
-el gusto que debe dar tener dinero y set hombre! . . .
- Unos años después, cuando joven todavía murió mi abuelo, Papá y tío
-Pancho siguieron gastando locamente, ya sin tasa ni medida. Esto, sumado a
-una malísima administración, revoluciones, crisis, bajas de precio, etc., hizo
-que aquella fortuna inmensa acabara de venirse abajo en poco tiempo. Cuan­
-do papá volvió por fin a Venezuela, tenía treinta años y estaba ya casi arrui­
-nado. En cuanto a tío Pancho no vino, sino que de acuerdo con sus teorías
- acerca del uso que debe tener el dinero, resolvió quedarse indefinidamente
-en París mientras el correo le llevase los célebres cheques de cincuenta mil
-francos.
- Afortunadamente papá una vez aquí, apremiado por la necesidad, que según
- Abuelita es la mejor de las madres, se dio a reorganizar su fortuna. ¡Todavía
- era tiempo de quedar al abrigo de la pobreza! Y así regenerado por el trabajo
- comenzó a ser otro. ¡Qué actividad, qué inteligencia, qué acierto demostró
- en la organización de sus intereses! . . .
- A los pocos años de llegar a Caracas se había casado ya, y al casarse acabó
- de coronar su obra y ordenar su vida. Porque él, que había liquidado toda
- su maltrecha fortuna, para concentrarla y redimir con ella la hacienda San
- Nicolás, una hacienda magnífica, una verdadera «mina de oro», que tenía
- muchísimos años en manos de la familia y que se hallaba ahora exhausta,
- abandonada, llena de deudas; al casarse, digo, sumó a aquella liquidación de
- sus propios bienes, la pequeña fortuna de mamá, y se entregó de lleno a su
- proyecto: redimir a San Nicolás. Y fue tanto, tantísimo, lo que se apasionó
- por la agricultura y la reconstrucción de la hacienda, que en San Nicolás se
- instaló de un todo después de casado, allí se dio a trabajar, allí nací yo; allí
- pasó sus años felicísimos de matrimonio, y finalmente allí, sin saber cómo,
- cogió mamá aquel tifus terrible que la mató en unos días . . . Poco tiempo
- después de esta catástrofe, papá enfermó, triste, neurasténico, lo mismo que
- había hecho mi abuelo treinta años antes, él también resolvió irse a Europa
-en viaje de recreo y de salud. Y fue entonces cuando obstinadamente, contra
-la opinión de Abuelita que se ofrecía a cuidarme durante su ausencia, desoyen­
-do sus consejos, destrozando su corazón al arrancarme de su lado, para no
-volver ya más, se embarcó en La Guaira con mi aya y conmigo, aquella maña­
-na lejanísima que yo recuerdo aún . . .
- Hasta aquí, Cristina, estoy conforme con el relato de Abuelita; en él apa­
-rece la verdad pura y clarísima como aparecen los guijarros en el fondo de
-una agua muy limpia. Pero como verás de aquí en adelante el agua se ensu­
-cia, gracias a la jabonadura de las manos de tío Eduardo, y ya, bajo las pala­
-bras sinceramente dichas, la verdad no aparece más ante mis ojos con aquella
-nítida claridad del principio.
- Y es que según parece, papá, antes de su desgracia, se había entusiasmado
-con no sé qué empresa industrial de hilandería, y en combinación con ella
-había hecho una gran siembra de algodón en San Nicolás que se hallaba ya
-completamente libre y floreciente. Cuando muerta Mamá y enfermo él, resol­
-vió su viaje, asoció a tío Eduardo a la explotación del algodón, a la empresa
-industrial, le dio poderes generales, y lo nombró administrador de la hacienda.
- Luego se fue.
- ¿Qué ocurrió entonces? continuó diciendo Abuelita, con su voz afir­
-mativa trémula de convicción . ¡Pasó lo que yo tanto le anuncié, lo que yo
-tanto presentía! Una vez allá se quedó en París indefinidamente, volvió a su
-vida disipada de soltero, se entregó a la ociosidad y gastando de nuevo a
-manos llenas, poco a poco fue perdiendo su fortuna y junto con ella perdió
-también lo que sólo era tuyo: ¡la pequeña herencia que te había dejado tu
-Madre!. . . Eduardo, por el contrario, trabajaba asiduamente, sin separarse
-de la hacienda, sin venir casi a Caracas; puede decirse que allí crecieron sus
-hijos; como es natural hizo economías y mientras tu Padre gastaba sin juicio,
-él iba adquiriendo más y más . . . Según me ha contado Eduardo, muy poco
-tiempo antes de la muerte casi repentina de tu Papá lo había llamado ya a fin
-de hacer juntos una liquidación . . . Esta se hizo después de la desgracia . . .
-De ella resultó que Antonio no dejaba sino deudas . . . y ¡asómbrate! Eduar­
-do, no solamente las cubrió, sino que además con gran generosidad pagó los
-gastos extraordinarios de clínica y entierro; dio para tu viaje, dio para tu
-sostenimiento de tres meses en Europa, y por último, en obsequio tuyo, se
-desprendió también de esos diez mil bolívares que tan irreflexivamente mal­
-barataste en París . .. ¿Comprendes ahora por qué me molesté ante las alusio­
-nes injustísimas de Pancho? . . . Eduardo ha sido muy generoso contigo; ¡es
-preciso que lo sepas y se lo agradezcas!. .. ha sido muy generoso. . . muy
-generoso . . . casi tanto como lo es hoy día conmigo! . . .
- Estas palabras finales de Abuelita me habían ido cayendo en el espíritu
-como me hubiese caído en la cabeza una lluvia de plomo derretido. Sentí. . .
- ¡yo no sé lo que sentí!. . . El tono convencido y rotundamente afirmativo
-con que hablaba, había domado a tal punto mi espíritu, que en mi alma se
- mezclaba ahora con desesperada efervescencia, la indignación de la víctima
-despojada y la perplejidad humillante de la duda:
- ¡De manera que no solamente no tenía nada, nada en el mundo, sino que
-además debía vivir eternamente agradecida a tío Eduardo por sus beneficios!
-Pensaba en el aire de superioridad con que me había tratado María Antonia
-el día de mi llegada y me daban ganas de quemar uno tras otro todos; los obje­
-tos adquiridos por medio de aquellos diez mil bolívares. ¡Ah! . . . ¡qué humi­
-llación! . .. ¡qué rabia! . . .
- Pero de pronto me dominaba otra vez mi primera sospecha: ¡No! ..
-¡No . . . Abuelita que hablaba de muy buena fe, estaría engañada tal vez
-por tío Eduardo . . . S í . . . sin duda: ¡bien claro lo había dicho tío Pancho! . ..
-Además: ¡aquella cara! . . . ¡No en balde, me había parecido tan feo, tan
-horrible al verle por primera vez a bordo del vapor! . . .
- Cuando la voz de Abuelita, después de elogiar multitud de veces la gene­
-rosidad infinita de tío Eduardo, se hubo callado al fin, yo, con los dientes
-muy apretados me quedé reflexionando un instante esto que te llevo dicho.
-Luego, mientras la gran barahúnda de perplejidades y de dudas se agitaba aún
-en mí, tratando de fingir indiferencia le repliqué con el mismo tono firme
-con que había hablado ella:
- Pero Abuelita, yo no vi nunca que papá viviera en medio de ese despil­
-farro que tú dices, y siempre, siempre, hablaba de San Nicolás, como si fuese
-dueño único, exclusivo: ¿cómo es posible que no se hubiera dado nunca cuen­
-ta de su absoluta ruina?
- Tu Padre, hija mía continuó diciendo Abuelita con su tono conven­
-cido y magnetizador , tu padre en Europa no volvió a ocuparse más del esta­
-do de sus negocios. Vivía entregado a un libro de críticas históricas que
-según parece estaba escribiendo, y . . . ¡a otras distracciones! . . .
- Calló un instante, y después añadió más enérgicamente sembrando las
-palabras de pausas y de misteriosas reticencias:
- ¡Ah! . . . ¡los hombres! . . . Los hombres, hija mía, gastan a veces mu­
-cho . . . mucho . . . ¡ese París! . . . ¡ah! ¡ese París! . . es el sepulcro de todas
-nuestras grandes fortunas, y muchas veces, es también el sepulcro de la feli­
-cidad honrada y tranquila . . .
- Continuó hablando y el tono misterioso continuó su obra de sugestión;
-porque ya, muda, con los ojos abiertos, fijos sobre las matas del patio, sumida
-enteramente dentro de la duda sólo tenía fuerzas para comentar conmigo
-misma:
- ¡Y quién sabe! . . . ¡quién sabe!
- ¡Sí!, lo único que verdaderamente sabía, es que en aquella mañana, en
-aquella hora negra que acababa de pasar, se había revelado a mis ojos un
-hecho evidente, irremediable y espantoso: ¡la absoluta pobreza, sin más remi­
-sión ni más esperanza que el apoyo de los mismos que me habían quizás
-despojado!
- Abuelita, conmovida sin duda por mi silencio aprobador, suavizando la voz
-más y más, seguía torturándome por querer consolarme:
- Comprendo, hijita mía, que estas noticias te contraríen, pero piensa. . .
-¡piensa que no estás sola en este mundo! . . . ¡Cuántas otras hay más desgra­
-ciadas que tú, porque viven en la absoluta miseria y tienen además que traba­
-jar para poder comer! ¡De cuántos peligros no se ven rodeadas! A ti no te
-faltará nada mientras yo viva . . Desgraciadamente, no soy rica, no tengo
-sino lo indispensable; pero sé que Eduardo velará siempre por mí, y yo, a mi
-vez me ocuparé de llenar todas tus necesidades . . . Por otro lado, eres bonita,
-distinguida, estás bien educada, perteneces a lo mejor de Caracas . .. ¡harás
-sin duda un buen matrimonio! . . . No veas tu situación desde el punto de
-vista europeo. Allá la pobreza de una joven representa generalmente el fraca­
-so completo de su vida. Aquí no . . . Allá se le dice a la mujer: «Tanto tienes,
-tanto vales». Aquí no, aquí sólo cuenta el ser bonita y sobre todo: ¡virtuosa!
-En nuestra sociedad, muy decaída por otros conceptos, existe todavía cierta
-delicadeza en los hombres. Nuestros hombres, tienen un verdadero culto por
-la mujer virtuosa, y cuando van a casarse no buscan nunca a la compañera
-rica, sino a la compañera irreprochable . . . ¡Por eso, por eso hija mía, te
-quiero ver siempre sin la más leve sombra de ligereza! Quiero que seas seve-
-rísima contigo misma, María Eugenia. Oyelo bien: en todas partes, y aquí
-más que en todas partes, la virtud de una mujer intachable vale muchísimo
-más que su dinero . . . Mira, yo era pobre cuando tu abuelo se enamoró de
-mí y . . . fui feliz . . . ¡ah! ¡tan feliz! . . . Tu abuela paterna, Julia Alonso, se
-casó con Martín, millonario, cuando ella y su familia vivían en la miseria más
-completa: ¡tenían que trabajar para poder comer! . , . Rosita Aristeigueta,
-parienta nada menos que de Bolívar y del Marqués del Toro . . . Las Urdane-
-ta . . . Las Soublette . . . Las Mendoza . . . María Isabel Tovar, mi prima. . .
- Y remontándose otra vez setenta años arriba, Abuelita, con su voz suaví­
-sima de caricia, conmenzó a tejer una tras otra, sencillas crónicas de amor, en
-las cuales, sin interés de dinero surgían matrimonios de una felicidad idílica,
-patriarcal. ..
- Sentada junto a ella, mirando las matas del patio, inmóvil, petrificada, en
-mi desastre, me di a escuchar en silencio las viejas historias de las viejas
-amigas de Abuelita; escuché después las de las hijas, y escuché por fin las de
-las nietas. Las oí todas con resignación y con melancolía. Y es que para mis
-oídos, aquellos nombres eran dulcemente evocadores. Los había escuchado
-muchas veces, pronunciados por la boca de papá, cuando él también refería
-con objeto muy distinto al de Abuelita, el mismo proceso de la aristocracia
-de Caracas, es decir, la dolorosa historia de casi todos aquellos «criollos»
-descendientes de los conquistadores, que se llamaron «mantuanos» en tiempos
-de la Colonia, que fundaron y gobernaron las ciudades; que grabaron sus
-escudos en las puertas de las viejas casonas; que hicieron con su sangre la
-independencia de media América; que decayeron después, oprimidos bajo las
-persecuciones y los odios de partido; y cuyas nietas y biznietas hoy día oscu­
- recidas o pobres como lo soy ahora yo, sin avergonzarse jamás de su pobreza,
-esperaban resignadas la hora del matrimonio o la hora de la muerte, haciendo
-dulces para los bailes, o tejiendo coronas de flores para los entierros.
- Y como el tono, y los nombres, y los relatos, venían a estar de acuerdo con
-mi estado de ánimo, escuchando la voz de Abuelita, me dejé llevar suave­
-mente en alas de la conformidad; mis nervios comenzaron a deprimirse, las
-ideas irritantes se apagaron una tras otra; el tono arrullador y maternal como
-un canto de cuna se insinuó enteramente en mi espíritu y las palabras monó­
-tonas acabaron por resonar en mis oídos sin significado . . . Contemplando
-las copas verdes de los rosales del patio me di a considerar el eterno rever­
-decer de las plantas bajo la luz del s o l. . . S í . . . La vida tenía una fuerza
-misteriosa que todo lo vencía. . . tal vez pudiese yo renacer todavía a la
-felicidad.. . como bien decía Abuelita, el matrimonio, esto es, el amor, aquel
-amor lejano de su juventud, a mí me esperaba todavía en la vida . . . ¡Quizás
-llegase con él la realización de tantos anhelos imposibles que me torturaban
-ahora la existencia! . . . ¡Mi alma, como aquellos rosales más pequeños del
-patio no había florecido aún! . . .
- Y mientras la resignación dulce y benigna, se extendía lánguidamente sobre
-mi alma atormentada, mirando siempre las matas del patio, y con la voz
-arrulladora siempre en los oídos, me pregunté a mí misma por primera vez
-con ansia y con curiosidad qué cosa sería realmente el amor, ese amor que
-me mostraba Abuelita como la única puerta por la cual podía ya salir a la
-vida, ese amor que habiendo sido siempre familiar a mis oídos parecía ence­
-rrar ahora un sentido extraño y desconocido, ese amor que era ya la única
-redención posible de mi existencia . . . ¡Ah! . . . ¡el amor! . . . ¿qué secreto
-milagroso se encerraba en lo más íntimo de su esencia? . . . y además: ¿qué
-entendería Abuelita por «felicidad»? . . .
  De pronto me pareció que lo que Abuelita llamaba «felicidad» debía ser
 algo muy triste, muy aburrido, algo que al igual de esta casa olería también
 a jazmín, a velas de cera o a fricciones de Ellimans' Embrocation . . . y
