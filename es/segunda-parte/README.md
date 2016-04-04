@@ -1,3 +1,3 @@
-# SEGUNDA PARTE
+# Segunda parte
 
 El balcón de Julieta
