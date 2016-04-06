@@ -1,6 +1,6 @@
-Capítulo I
+**Capítulo I**
 
-Remitida ya la interminable carta a su amiga Cristina, María Eugenia Alonso resuelve escribir su diario. Como se verá, en este primer capítulo aparece por fin la gentil persona de Mercedes Galindo.
+_**Remitida ya la interminable carta a su amiga Cristina, María Eugenia Alonso resuelve escribir su diario. Como se verá, en este primer capítulo aparece por fin la gentil persona de Mercedes Galindo.**_
 
 Considero que es una gran tontería, y me parece además de un romanticismo cursi, anticuado y pasadísimo de moda, el que una persona tome una pluma y se ponga a escribir su diario. Sin embargo, voy a hacerlo. Sí; yo, María Eugenia Alonso, voy a escribir mi diario, mi semanario, mi periódico, no sé como decir, pero en fin, es algo que al tratar sobre mi propia vida, equivaldrá a eso que en las novelas llaman «diario»...
 
