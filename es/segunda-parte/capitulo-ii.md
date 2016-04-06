@@ -1,210 +1,60 @@
- CAPITULO II
+Capítulo II
 
- En donde María Eugenia Alonso describe los ratos de suave con­
- templación pasados en el corral de su casa y en donde a su vez apa­
- rece también Gabriel Olmedo.
+En donde María Eugenia Alonso describe los ratos de suave contemplación pasados en el corral de su casa y en donde a su vez aparece también Gabriel Olmedo.
+
+Nuestros antepasados, los fundadores de la ciudad de Caracas, aun cuando no lo parezca a primera vista, tuvieron mucho talento. Encontraron la manera de vivir en ciudadana comunidad sin renunciar a los encantos agrestes y bucólicos de la vida campesina. Es cierto que tendieron unas calles demasiado angostas; que las empedraron con guijarros agresivos; que las agobiaron con aleros, y las recargaron de rejas, pero tuvieron en cambio la inteligencia y la inmensa previsión de guardar un buen pedazo de campo dentro de cada casa. ¡Ah! ¡Eran delicados y eran previsivos nuestros antepasados los fundadores de la ciudad de Caracas! Gracias a su delicadeza y previsiones es sin duda por lo que yo, una de sus muchas descendientes, tengo el alma soñadora, algo indolente y muy dada a las dulzuras de la contemplación...
+
+Así pensaba ayer, mirando los distintos verdes en las matas del corral, mientras yacía acostada cuan larga soy, sobre un enorme baúl lleno de viejas etiquetas de todas formas y colores, el cual perteneció a mi difunto tío Enrique, y el cual en la actualidad se halla situado bajo el amplio tinglado del corral frente a las gallinas meditabundas y entre la tabla de planchar y la cesta de la ropa limpia. Allí, baldado, triste y decaído, con el llanto de todas sus desgarradas etiquetas, llora, y llora de nostalgia el pobre viejo, mientras recuerda como yo los pasados viajes y las pasadas aventuras por tierras lejanas.
+
+Es el caso que este pedazo de campo encerrado entre cuatro tapias que acostumbran a llamar corral es para mí una delicia y es también el origen de todos mis ensueños y meditaciones. Tía Clara no lo comprende así y dice casi todos los días:
+
+—El puesto de una señorita no es el corral, ni su sociedad la de los sirvientes.
+
+Podrá tener razón, pero de todos modos me tienen sin cuidado los sermones de tía Clara sobre este particular. A mí me encantan las gallinas; me encantan las copas de los árboles que como cabezas curiosas se asoman por las tapias desde los corrales vecinos; me encantan las hojas tan verdes y tan rizaditas de la mata de acacia; me encantan las cayenas chillonas; me encantan las grandes piedras manchadas de blanco donde se extiende al sol la ropa enjabonada; me encanta el pedazo del Ávila que se mira a lo lejos por encima de las matas y de los tejados; me encanta el nostálgico baúl de tío Enrique; y me encanta, sobre todo, Gregoria, cuando en pleno elemento conversa restregando con sus negros puños los islotes de ropa que emergen aquí y allá, en su inmensa batea, como en un mar blanquísimo de espuma de jabón.
+
+Gregoria conoce mis tendencias contemplativas y en lugar de contrariarlas como hace tía Clara, no, Gregoria las alimenta. Cuando yo entro en el corral y me extiendo sobre el baúl que hace las veces de *chaise longue*, ella, conociendo ya mis gustos y caprichos prodiga sobre mi persona toda clase de cuidados: me cubre los pies para que no me piquen los mosquitos; cierra la puerta con el objeto de evitar toda corriente de aire; tiende en el alambre una sábana ancha a fin de atenuar a mis ojos la luz directa del sol, y suele además prestarme como almohada algún mullido paquete de ropa limpia y sin planchar.
+
+Tía Clara detesta todas estas familiaridades con Gregoria, y detesta todavía más las familiaridades de mi cabeza con la ropa limpia. Pero también me tienen absolutamente sin cuidado estos otros sentimientos antidemocráticos de tía Clara.
+
+Y es que en el sencillo ambiente del corral, lo digo y lo repetiré mil veces, es donde únicamente paso ratos de suave contemplación y de sabrosa plática. A veces estamos en silencio, y entonces, mientras Gregoria lava, yo miro los caprichosos arabescos que tejieron las ramas entre sí; miro los disparates que van haciendo las nubes al pasar por el cielo; miro allá, a lo lejos, más arriba de matas y tejados el misterio indefinido del Ávila, y poco a poco me voy perdiendo en el dulce laberinto de los ensueños... ¡Sí; sobre las durezas del baúl de tío Enrique, he aprendido a soñar, como soñó Jacob sobre las durezas de su piedra!
+
+Otras veces conversamos.
+
+¡Ah!, si yo fuera poeta, habría escrito ya, sin duda ninguna, el elogio del jabón, multiplicándose en espuma y en luminosas burbujas por obra y gracia de los activos nudillos de Gregoria. Y es que para mi gusto no hay ningún poema comparable a ese blanquísimo poema de la batea que tan bien interpretan las viejas manos ya algo rígidas y temblorosas. Sí; ¡cómo brillan las aladas y negras manos sobre la inmaculada blancura! ¡Parecen a ratos dos enamoradas golondrinas retozando y persiguiéndose una a otra sobre el mismo pedazo de nube!... y sin embargo, mucho más chispeantes y luminosas que la espuma del jabón son las palabras que entretanto van surgiendo de su boca, y son más fecundas en filosofía que fecunda es la blanquísima espuma, que crece, y crece, y crece, eternamente tras el continuo batir y restregar.
+
+Es esto lo que tía Clara no comprenderá jamás, y lo que yo he descubierto desde hace ya mucho tiempo. Gregoria es la sabiduría sencilla y sin complicaciones. Bajo la maraña de su pelo lanudo se esconde, como en el misterio del brillante negro, la chispa clarísima del más agudo ingenio. Gregoria posee además la facultad de expresarlo, porque domina a maravilla el arte rarísimo de la conversación. Tan sobria es en palabras superfluas, como rica en ideas y en mímica expresiva. La mímica de Gregoria, tiene sutilezas y matices adonde no podrá llegar jamás la palabra. Hay veces que son miradas misteriosas y largas como los hondos secretos de la naturaleza; otras un súbito relampagueo de pupilas que imita el asombro de las grandes sorpresas; tiene guiños epigramáticos; caídas de párpado que son paréntesis; silencios repentinos que resultan epílogos muy elocuentes; carcajadas que describen en sus notas como la música wagneriana todos los sentimientos y las pasiones que puedan agitarse dentro del alma humana. A veces, en obsequio a la reserva y discreción que exigen ciertos temas delicados, lo que empezó frase acaba en mímica. El silencio parece entonces presidir la escena; en la batea, momentáneamente abandonada, chisporrotea imperceptible la espuma de jabón, las expresivas manos, vuelan y revuelan rápidas o lentas por las cercanías del rostro y los tres juntos realizan prodigios descriptivos.
+
+Naturalmente, después de haber saboreado toda la gama de colores que atesora en su paleta la conversación de Gregoria, el oír hablar a las personas bien educadas como son verbigracia, Abuelita y tía Clara, resulta muy insípido y sumamente desteñido. Y es que Gregoria maneja con el supremo buen gusto del artista toda la serie de movimientos o ademanes que a falta de intérpretes inteligentes, la buena educación en su cordura, ha decidido vedar y prohibir completamente.
+
+Y es así, en mis largas pláticas con Gregoria, como he llegado a conocer dos cosas a la vez: por un lado muchos ocultos repliegues del alma humana y por otro lado, todas aquellas intimidades de mi familia, que Abuelita y tía Clara tienen gran cuidado de no referir jamás delante de mí, y que por lo tanto son las únicas que me interesan.
+
+Sí; por Gregoria he sabido muchas cosas. He sabido que tío Eduardo fue siempre egoísta, mezquino y ordenado, todo a la vez; que cuando pequeño escondía siempre sus juguetes y jugaba con los de tío Enrique, o sea, que durante su infancia hizo siempre con los juguetes de tío Enrique, lo mismo que ha hecho ahora en su edad madura con las tres cuartas partes de San Nicolás que me pertenecían a mí, y que se ha cogido de un todo para él; por Gregoria he sabido que tío Enrique desdeñaba todos sus juguetes, razón por la cual se los dejaba a tío Eduardo muy contento, puesto que él prefería mil veces, subirse a las matas para atisbar la vida ajena, y para tirar piedras y frutas verdes a los corrales vecinos; por Gregoria he sabido, y en esto actuó muchísimo la mímica, que mi Abuelo Aguirre, aunque de costumbres pacíficas y ordenadas «se alborotó» ya viejo, con cierta bailarina francesa, cosa que tuvo por resultado el que su cama, bajo la orden y dirección de Abuelita, saliese de su cuarto, atravesase bélicamente el comedor, como atravesaron los israelitas el mar Rojo, para venir a aposentarse aquí, en el segundo patio, en donde se halla ahora este mi cuarto y que mientras duró dicha mudanza o anomalía, ella no se dignaba contestar nunca cuando él la llamaba o dirigía la palabra; por Gregoria he sabido que tío Enrique cuando regresó de Europa, ya grande, solía enamorarse de cuantas sirvientas pasables hubiera en la casa, lo cual hizo que Abuelita escogiese en adelante para su servidumbre todos aquellos rostros femeninos en donde la nauraleza hubiese acumulado el mayor número posible de disparates y desórdenes: por Gregoria he sabido que María Antonia, la antipatiquísima mujer de tío Eduardo, es de un origen muy oscuro, por no decir muy negro, que fue tío Pancho Alonso, quien, una vez que le dio por coleccionar genealogías, averiguó en un dos por tres la de María Antonia, y resultó ser tan accidentada y tortuosa, que desde entonces María Antonia abomina a tío Panchito, como al más vil e intruso de los delatores; por Gregoria he sabido, que Mamá tenía un carácter dulce y alegre al mismo tiempo, mientras que el de tía Clara, aunque de exterior apacible era intensamente apasionado, razón por la cual su vida había sido una vida tan dolorosa y tan triste; y, finalmente por Gregoria he sabido cómo tía Clara, siendo muy joven, se enamoró perdidamente de aquel novio suyo que yo recuerdo entre sueños cuando me daba dulces y me hacía gallitos con pedazos de papel; cómo de repente, después de muchísimos años de noviazgo, se averiguó que él andaba detrás de otra mucho más joven y bonita; cómo algún tiempo después no volvió más a sus diarias visitas, y cómo un día, tras el llorar infinito y amarguísimo de tía Clara, él acabó por fin casándose con la otra...
+
+—Desde entonces –añade Gregoria, sacando las negrísimas manos de la blanquísima espuma, y escogiendo entre su repertorio las más sentimentales expresiones–, desde entonces ¡se acabó la Niña Clara! ¡Ya no volvió a salir más, se metió en la iglesia, y empezó a ponerse delgada y pálida, pálida como está ahora, que más que la Niña Clara de antes, parece la pobre un mismo cirio, de esos que llevan el jueves santo en las procesiones!...
+
+Y con semejante frase, terminó Gregoria una de sus largas disertaciones acerca de tía Clara, ayer a cosa de las once y media de la mañana.
+
+Ahora bien, como soy tan aficionada a metáforas o símbolos, y como para desarrollar un tema apropiado tengo esta elegancia y esta fecundidad que ya desearía tener cualquiera de esos admirables poetas llamados simbolistas u orfebres, es claro, al oír que Gregoria esbozaba el símbolo del cirio, no quise perder la ocasión de desarrollar un tema tan adecuado, y así, mientras ella volvía en silencio a su trabajo, yo me hundía en el terreno de las afinidades psicológicas, y acostada siempre en el baúl, y mirando a lo lejos la montaña, me puse a comentar el caso diciéndome a mí misma llena de la más dulce melancolía:
+
+—Sí; pobre tía Clara, sí... Eres el cirio votivo, cuyo fuego idealista va consumiendo, consumiendo tu propia vida; y tu vida, es la luz mística y perseverante que olvidada de todos, arde en la sombra, bajo el silencio y bajo la soledad de los altares. A nadie alumbró nunca esa luz tuya, y el día en que te apagues no dejarás a tu alrededor ni oscuridades, ni fríos de tristeza porque sólo has sido fuego lírico de sacrificio, porque en el lento consumirse de tu vida, ni fuiste jamás lumbre en el hogar, ni serás nunca luz para el camino...
+
+Así andaban más o menos mis poéticas consideraciones, y así hubieran andado muchísimo tiempo más, si no fuera porque, de pronto, se abrió bruscamente la puerta del corral y como al conjuro de algún encantamiento apareció en ella la cabeza de tía Clara; pero no en aquella actitud macilenta, propia de los cirios, no, sino agitadísima, encendidos los ojos y un tanto molesta, que decía encarándose conmigo:
+
+–¡Mira, María Eugenia, si en lugar de estar en el corral a puerta cerrada, ensuciando con tu cabeza la ropa que nos vamos a poner, estuvieras «donde te corresponde», no sería menester llamarte a gritos por toda la casa, exactamente lo mismo que a Chispita, cuando le da por esconderse debajo de algún mueble. Hace ya más de media hora que, sin acordarme de tu dichosa manía por el corral, ando loca detrás de ti registrando la casa entera: ¡te llaman por teléfono!
+
+—¡¡*Eureka*!! –exclamé, por ser ésta, aunque un poco pretenciosa, la única interjección a que me ha dejado reducida Abuelita–. ¡*Eureka*! y ¡*eureka*! ¿Quién podrá ser y para qué me querrán?
+
+Y levantándome en un salto de encima del baúl, atravesé como corriente de aire por patios y puertas, hasta llegar al teléfono y pronunciar la mágica palabra:
+
+—¿Quién es?
+
+Y era la mil veces bendita Mercedes Galindo, que me llamaba para invitarme a que fuese en la noche a comer con ella. Tío Pancho hacía las veces de acompañante o *chaperon*, vendría a buscarme y volvería a traerme, ya estaba convenido. Mercedes añadió:
+
+—...y quiero que a la noche estés muy bonita, es decir, tan bonita como el otro día, que es lo más bonito a que puede llegar una persona.
+
+Esta frase que me pareció resplandeciente de verdad, lo mismo que me parece resplandeciente de luz el sol del mediodía, me puso de un admirable buen humor. Y como afortunadamente, por el teléfono, yo no podía percibir el perfume turbador que usa Mercedes, ni la fastuosa palidez de sus perlas, ni el suave brillo de su vestido de terciopelo, ni aquella encantadora sonrisa que es un escándalo de labios rojos y de dientes blancos; como por el teléfono, repito, no me era dado el percibir esta serie de circunstancias, las cuales a más de la persona, contribuyeron a despertar en mí el día de su visita aquel importuno sentimiento de timidez, libre por completo de dicho sentimiento, me fue dado el contestar con mucha elegancia a su amabilidad diciendo: que si tal opinaba ella, yo entonces, me vería obligada a creer que su casa era como los severos y desnudos claustros de los conventos en donde los monjes acaban por olvidarse de sí mismos a fuerza de no mirarse nunca en los espejos.
 
 
-N u e s t r o s a n t e p a s a d o s , los fundadores de la ciudad de Caracas, aun cuando
-no parezca a primera vista, tuvieron mucho talento. Encontraron la manera
-de vivir en ciudadana comunidad sin renunciar a los encantos agrestes y bucó­
- licos de la vida campesina. Es cierto que tendieron unas calles demasiado
-angostas; que las empedraron con guijarros agresivos; que las agobiaron con
-aleros, y las recargaron de rejas, pero tuvieron en cambio la inteligencia y la
-inmensa previsión de guardar un buen pedazo de campo dentro de cada casa.
- ¡Ah! ¡eran delicados y eran previsivos nuestros antepasados los fundadores
-de la ciudad de Caracas! Gracias a su delicadeza y previsiones es sin duda
-por lo que yo, una de sus muchas descendientes, tengo el alma soñadora, algo
-indolente y muy dada a las dulzuras de la contemplación . . .
- Así pensaba ayer, mirando los distintos verdes en las matas del corral,
-mientras yacía acostada cuan larga soy, sobre un enorme baúl lleno de viejas
-etiquetas de todas formas y colores, el cual perteneció a mi difunto tío Enri­
-que, y el cual en la actualidad se halla situado bajo el amplio tinglado del
-corral frente a las gallinas meditabundas y entre la tabla de planchar y la
-cesta de la ropa limpia. Allí, baldado, triste y decaído, con el llanto de todas
-sus desgarradas etiquetas, llora, y llora de nostalgia el pobre viejo, mientras
-recuerda como yo los pasados viajes y las pasadas aventuras por tierras lejanas.
- Es el caso que este pedazo de campo encerrado entre cuatro tapias que
-acostumbran a llamar corral es para mí una delicia y es también el origen de
-todos mis ensueños y meditaciones. Tía Clara no lo comprende así y dice casi
-todos los días:
- El puesto de una señorita no es el corral, ni su sociedad la de los sir­
-vientes.
- Podrá tener razón, pero de todos modos me tienen sin cuidado los sermo­
-nes de tía Clara sobre este particular. A mí me encantan las gallinas; me
-encantan las copas de los árboles que como cabezas curiosas se asoman por
-las tapias desde los corrales vecinos; me encantan las hojas tan verdes y tan
-rizaditas de la mata de acacia; me encantan las cayenas chillonas; me encantan
-las grandes piedras manchadas de blanco donde se extiende al sol la ropa
-enjabonada; me encanta el pedazo del Avila que se mira a lo lejos por encima
-de las matas y de los tejados; me encanta el nostálgico baúl de tío Enrique;
-y me encanta, sobre todo, Gregoria, cuando en pleno elemento conversa
-restregando con sus negros puños los islotes de ropa que emergen aquí y allá,
-en su inmensa batea, como en un mar blanquísimo de espuma de jabón.
- Gregoria conoce mis tendencias contemplativas y en lugar de contrariarlas
-como hace tía Clara, no, Gregoria las alimenta. Cuando yo entro en el corral
-y me extiendo sobre el baúl que hace las veces de chaise longue, ella, cono­
-ciendo ya mis gustos y caprichos prodiga sobre mi persona toda clase de cui­
-dados: me cubre los pies para que no me piquen los mosquitos; cierra la puer­
-ta con el objeto de evitar toda corriente de aire; tiende en el alambre una
-sábana ancha a fin de atenuar a mis ojos la luz directa del sol, y suele además
-prestarme como almohada algún mullido paquete de ropa limpia y sin planchar.
- Tía Clara detesta todas estas familiaridades con Gregoria, y detesta toda­
-vía más las familiaridades de mi cabeza con la ropa limpia. Pero también
- me tienen absolutamente sin cuidado estos otros sentimientos anti-democrá-
-ticos de tía Clara.
- Y es que en el sencillo ambiente del corral, lo digo y lo repetiré mil veces,
-es donde únicamente paso ratos de suave contemplación y de sabrosa plática.
-A veces estamos en silencio, y entonces, mientras Gregoria lava, yo miro los
-caprichosos arabescos que tejieron las ramas entre sí; miro los disparates que
-van haciendo las nubes al pasar por el cielo; miro allá, a lo lejos, más arriba
-de matas y tejados el misterio indefinido del Avila, y poco a poco me voy
-perdiendo en el dulce laberinto de los ensueños . . . ¡Sí; sobre las durezas
-del baúl de tío Enrique, he aprendido a soñar, como soñó Jacob sobre las
-durezas de su piedra!
- Otras veces conversamos.
- ¡Ah!, si yo fuera poeta, habría escrito ya, sin duda ninguna, el elogio del
-jabón, multiplicándose en espuma y en luminosas burbujas por obra y gracia
-de los activos nudillos de Gregoria. Y es que para mi gusto no hay ningún
-poema comparable a ese blanquísimo poema de la batea, que tan bien inter­
-pretan las viejas manos ya algo rígidas y temblorosas. Sí; ¡cómo brillan las
-aladas y negras manos sobre la inmaculada blancura! ¡Parecen a ratos dos
-enamoradas golondrinas retozando y persiguiéndose una a otra sobre el mismo
-pedazo azul de nube! . . . Y sin embargo, mucho más chispeantes y luminosas
-que la espuma del jabón son las palabras que entretanto van surgiendo de su
-boca, y son más fecundas en filosofía que fecunda es la blanquísima espuma,
-que crece, y crece, y crece, eternamente tras el continuo batir y restregar.
- Es esto lo que tía Clara no comprenderá jamás, y lo que yo he descubierto
-desde hace ya mucho tiempo. Gregoria es la sabiduría sencilla y sin compli­
-caciones. Bajo la maraña de su pelo lanudo se esconde, como en el misterio
-del brillante negro, la chispa clarísima del más agudo ingenio. Gregoria posee
-además la facultad de expresarlo, porque domina a maravilla el arte rarísimo
-de la conversación. Tan sobria es en palabras superfluas, como rica en ideas
-y en mímica expresiva. La mímica de Gregoria, tiene sutilezas y matices a
-donde no podrá llegar jamás la palabra. Hay veces que son miradas misterio­
-sas y largas como los hondos secretos de la naturaleza; otras un súbito relam­
-pagueo de pupilas que imita el asombro de las grandes sorpresas; tiene guiños
-epigramáticos; caídas de párdado que son paréntesis; silencios repentinos que
-resultan epílogos muy elocuentes; carcajadas que describen en sus notas
-como la música wagneriana todos los sentimientos y las pasiones que puedan
-agitarse dentro del alma humana. A veces, en obsequio a la reserva y discre­
-ción que exigen ciertos temas delicados, lo que empezó frase acaba en mímica.
-El silencio parece entonces presidir la escena; en la batea, momentáneamente
-abandonada, chisporrotea imperceptible la espuma de jabón, las expresivas
-manos, vuelan y revuelan rápidas o lentas por las cercanías del rostro y los tres
-juntos realizan prodigios descriptivos.
- Naturalmente, después de haber saboreado toda la gama de colores que
-atesora en su paleta la conversación de Gregoria, el oír hablar a las personas
- bien educadas como son verbigracia, Abuelita y tía Clara, resulta muy insípido
-y sumamente desteñido. Y es que Gregoria maneja con el supremo buen
-gusto toda la serie de movimientos o ademanes que a falta de intérpretes
-inteligentes, la buena educación en su cordura, ha decidido vedar y prohibir
-completamente.
- Y es así, en mis largas pláticas con Gregoria, como he llegado a conocer
-dos cosas a la vez: por un lado muchos ocultos repliegues del alma humana
-y por otro lado, todas aquellas intimidades de mi familia, que Abuelita y tía
-Clara tienen gran cuidado de no referir jamás delante, de mí, y que por lo tanto
-son las únicas que me interesan.
- Sí; por Gregoria he sabido muchas cosas. He sabido que tío Eduardo fue
-siempre egoísta, mezquino y ordenado, todo a la vez; que cuando pequeño
-escondía siempre sus juguetes y jugaba con los de tío Enrique, o sea, que
-durante su infancia hizo siempre con los juguetes de tío Enrique, lo mismo
-que ha hecho ahora en su edad madura con las tres cuartas partes de San
-Nicolás que me pertenecían a mí, y que se ha cogido de un todo para él; por
-Gregoria he sabido que tío Enrique desdeñaba todos sus juguetes, razón por
-la cual se los dejaba a tío Eduardo muy contento, puesto que él prefería mil
-veces, subirse a las matas para atisbar la vida ajena, y para tirar piedras y
-frutas verdes a los corrales vecinos; por Gregoria he sabido, y en esto actuó
-muchísimo la mímica, que mi Abuelo Aguirre, aunque de costumbres pací­
-ficas y ordenadas «se alborotó» ya viejo, con cierta bailarina francesa, cosa
-que tuvo por resultado el que su cama, bajo la orden y dirección de Abuelita,
-saliese de su cuarto, atravesase bélicamente el comedor, como atravesaron los
-israelitas el Mar Rojo, para venir a aposentarse aquí, en el segundo patio,
-en donde se halla ahora este mi cuarto y que mientras duró dicha mudanza o
-anomalía, ella no se dignaba contestar nunca cuando él la llamaba o dirigía
-la palabra; por Gregoria he sabido que tío Enrique cuando regresó de Europa,
-ya grande, solía enamorarse de cuantas sirvientas pasables hubiera en la casa,
-lo cual hizo que Abuelita escogiese en adelante para su servidumbre todos
-aquellos rostros femeninos en donde la nauraleza hubiese acumulado el mayor
-número posible de disparates y desórdenes: por Gregoria he sabido que María
-Antonia, la antipatiquísima mujer de tío Eduardo, es de un origen muy oscu­
-ro, por no decir muy negro que fue tío Pancho Alonso, quien, una vez que
-le dio por coleccionar genealogías, averiguó en un dos por tres la de María
-Antonia, y resultó ser tan accidentada y tortuosa, que desde entonces María
-Antonia abomina a tío Panchito, como al más vil e intruso de los delatores;
-por Gregoria he sabido, que Mamá tenía un carácter dulce y alegre al mismo
-tiempo, mientras que el de tía Clara, aunque de exterior apacible era inten­
-samente apasionado, razón por la cual su vida había sido una vida tan dolo-
-rosa y tan triste; y, finalmente por Gregoria he sabido cómo tía Clara, siendo
-muy joven, se enamoró perdidamente de aquel novio suyo que yo recuerdo
-entre sueños cuando me dada dulces y me hacía gallitos con pedazos de papel;
-cómo de repente, después de muchísimos años de noviazgo, se averiguó que
- él andaba detrás de otra mucho más joven y bonita; cómo algún tiempo
-después no volvió más a sus diarias visitas, y cómo un día, tras el llorar infi­
-nito y amarguísimo de tía Clara, él acabó por fin casándose con la otra . . .
- Desde entonces añade Gregoria, sacando las negrísimas manos de la
-blanquísima espuma, y escogiendo entre su repertorio las más sentimentales
-expresiones , desde entonces ¡se acabó la Niña Clara! ¡Ya no volvió a salir
-más, se metió en la iglesia, y empezó a ponerse delgada y pálida, pálida como
-está ahora, que más que la Niña Clara de antes, parece la pobre un mismo
-cirio, de esos que llevan el jueves santo en las procesiones!. . .
- Y con semejante frase, terminó Gregoria una de sus largas disertaciones
-acerca de tía Clara, ayer a cosa de las once y media de la mañana.
- Ahora bien, como soy tan aficionada a metáforas o símbolos, y como para
-desarrollar un tema apropiado tengo esta elegancia y esta fecundidad que ya
-desearía tener cualquiera de esos admirables poetas llamados simbolistas u
-orfebres, es claro, al oír que Gregoria esbozaba el símbolo del cirio, no quise
-perder la ocasión de desarrollar un tema tan adecuado, y así, mientras ella
-volvía en silencio a su trabajo, yo me hundía en el terreno de las afinidades
-psicológicas, y acostada siempre en el baúl, y mirando a lo lejos la montaña,
-me puse a comentar el caso diciéndome a mí misma llena de la más dulce
-melancolía:
- Sí; pobre tía Clara, s í . . . Eres el cirio votivo, cuyo fuego idealista va
-consumiendo, consumiendo tu propia vida; y tu vida, es la luz mística y per­
-severante que olvidada de todos, arde en la sombra, bajo el silencio y bajo
-la soledad de los altares. A nadie alumbró nunca esa luz tuya, y el día en que
-te apagues no dejarás a tu alrededor ni oscuridades, ni fríos de tristeza porque
-sólo has sido fuego lírico de sacrificio, porque en el lento consumirse de tu
-vida, ni fuiste jamás lumbre en el hogar, ni serás nunca luz para el camino . . .
- Así andaban más o menos mis poéticas consideraciones, y así hubieran
-andado muchísimo tiempo más, si no fuera porque, de pronto, se abrió brusca­
-mente la puerta del corral y como al conjuro de algún encantamiento apareció
-en ella la cabeza de tía Clara; pero no en aquella actitud macilenta, propia
-de los cirios, no, sino agitadísima, encendidos los ojos y un tanto molesta, que
-decía encarándose conmigo:
- ¡Mira, María Eugenia, si en lugar de estar en el corral a puerta cerrada,
-ensuciando con tu cabeza la ropa que nos vamos a poner, estuvieras «donde
-te corresponde», no sería menester llamarte a gritos por toda la casa, exacta­
-mente lo mismo que a Chispita, cuando le da por esconderse debajo de algún
-mueble. Hace ya más de media hora que, sin acordarme de tu dichosa manía
-por el corral, ando loca detrás de ti registrando la casa entera: ¡te llaman por
-teléfono!
- ¡¡Eurekaü exclamé, por ser ésta, aunque un poco pretenciosa, la única
-interjección a que me ha dejado reducida Abuelita . ¡Eureka! y ¡eureka!
-¿Quién podrá ser y para qué me querrán?
- Y levantándome en un salto de encima del baúl, atravesé como corriente de
-aire por patios y puertas, hasta llegar al teléfono y pronunciar la mágica
-palabra:
- ¿Quién es?
- Y era la mil veces bendita Mercedes Galindo, que me llamaba para invi­
-tarme a que fuese en la noche a comer con ella. Tío Pancho haría las veces
-de acompañante o chaperon, vendría a buscarme y volvería a traerme, ya
-estaba convenido. Mercedes añadió:
- . . .y quiero que a la noche estés muy bonita, es decir, tan bonita como
-el otro día, que es lo más bonito a que puede llegar una persona.
- Esta frase que me pareció resplandeciente de verdad, lo mismo que me
-parece resplandeciente de luz el sol del mediodía, me puso de un admirable
-buen humor. Y como afortunadamente, por el teléfono, yo no podía percibir
-el perfume turbador que usa Mercedes, ni la fastuosa palidez de sus perlas, ni
-el suave brillo de su vestido de terciopelo, ni aquella encantadora sonrisa
-que es un escándalo de labios rojos y de dientes blancos; como por el teléfono,
-repito, no me era dado el percibir esta serie de circunstancias, las cuales a
-más de la persona, contribuyeron a despertar en mí el día de su visita aquel
-importuno sentimiento de timidez, libre por completo de dicho sentimiento,
-me fue dado el contestar con mucha elegancia a su amabilidad diciendo:
-que si tal opinaba ella, yo entonces, me vería obligada a creer que su casa era
-como los severos y desnudos claustros de los conventos en donde los monjes
-acaban por olvidarse de sí mismos a fuerza de no mirarse nunca en los espejos.
  Esto dije a Mercedes, lo cual era decir en pocas palabras que su belleza es
 superior a la mía, cosa que puede pasar como finura, pero cuya falsedad salta
 inmediatamente a la vista. Mercedes es muy linda, sí, Mercedes es preciosí­
