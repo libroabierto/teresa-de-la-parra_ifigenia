@@ -1,6 +1,6 @@
-Capítulo II
+**Capítulo II**
 
-En donde María Eugenia Alonso describe los ratos de suave contemplación pasados en el corral de su casa y en donde a su vez aparece también Gabriel Olmedo.
+_**En donde María Eugenia Alonso describe los ratos de suave contemplación pasados en el corral de su casa y en donde a su vez aparece también Gabriel Olmedo.**_
 
 Nuestros antepasados, los fundadores de la ciudad de Caracas, aun cuando no lo parezca a primera vista, tuvieron mucho talento. Encontraron la manera de vivir en ciudadana comunidad sin renunciar a los encantos agrestes y bucólicos de la vida campesina. Es cierto que tendieron unas calles demasiado angostas; que las empedraron con guijarros agresivos; que las agobiaron con aleros, y las recargaron de rejas, pero tuvieron en cambio la inteligencia y la inmensa previsión de guardar un buen pedazo de campo dentro de cada casa. ¡Ah! ¡Eran delicados y eran previsivos nuestros antepasados los fundadores de la ciudad de Caracas! Gracias a su delicadeza y previsiones es sin duda por lo que yo, una de sus muchas descendientes, tengo el alma soñadora, algo indolente y muy dada a las dulzuras de la contemplación...
 
