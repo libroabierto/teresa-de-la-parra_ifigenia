@@ -98,4 +98,4 @@ Yo entonces, con la altivez propia de la dignidad herida contesté arrogantement
 
 No obstante, me quedé un rato pensativa. Me pareció de pronto, que la frase en cuestión estaba cargada de sentidos misteriosos y por un instante contemplé en silencio la nevada cabeza de Abuelita, que como el arca de la alianza encerraba las claves de muchísimos misterios, hasta que al fin, en pleno silencio tempestuoso, salí de mi abstracción pensando:
 
-—¡Bah, lo que ocurre, es que Abuelita, aunque salte a la vista, no quiere confesar que «el canalla de Galindo», hizo en su vida algo que estuviera bien hecho; eso es todo!
+—¡Bah, lo que ocurre es que Abuelita, aunque salte a la vista, no quiere confesar que «el canalla de Galindo», hizo en su vida algo que estuviera bien hecho; eso es todo!
