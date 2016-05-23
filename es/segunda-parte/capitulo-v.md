@@ -1,711 +1,220 @@
- CAPITULO V
+**Capítulo V**
 
- Aquí, María Eugenia Alonso, sentada en un peñasco, se confiesa
- con el río; el río le da consejos, y ella, obediente y piadosa, decide
- seguirlos todos al pie de la letra.
+_**Aquí, María Eugenia Alonso, sentada en un peñasco, se confiesa con el río; el río le da consejos, y ella, obediente y piadosa, decide seguirlos todos al pie de la letra**_
 
+Abuelita tenía razón al predecir que viviendo con mis primos, acabaría por perderles aquella vehemente antipatía que hasta hace poco les profesaba; puesto que, en efecto, hace apenas un mes que estamos juntos en la hacienda y... ¡ya me gusta el arreo! Ahora lo encuentro bastante simpático y bastante bien.
 
-A b u e l i t a t e n í a razón al predecir que viviendo con mis primos, acabaría
-por perderles aquella vehemente antipatía que hasta hace poco les profesaba;
-puesto que, en efecto, hace apenas un mes que estamos juntos en la hacienda
-y . . . ¡ya me gusta el arreo! Ahora lo encuentro bastante simpático y bastan­
-te bien.
- Creo que la antipatía es un sentimiento caprichoso y superficial que en el
-fondo no existe ni tiene razón de ser. En realidad casi nadie es antipático.
-Si se considera a las personas muy de cerca y se penetra con bondad en la esen­
-cia de su psicología, acabamos por admirar sus cualidades, y tolerar sus defec­
-tos, como en el orden físico toleramos la lluvia; el calor; las manchas en la
-pared del cuarto que habitamos; o la almohada dura de la cama en que dor­
-mimos: todo es cuestión de tiempo y de paciencia. Esta es a mi ver una de
-las pruebas más palpables de que el hombre es un animal sociable que ha
-nacido para vivir en compañía de sus semejantes. Si ciertos defectos que
-ostentan a veces los demás nos crispasen siempre los nervios como el primer
-día en que los conocimos, acabaríamos sin duda ninguna por preferir el suici­
-dio a la compañía de esas personas. Pero afortunadamente todo en la natu­
-raleza está muy bien ordenado y la costumbre, que es muy conciliadora, hace
-el papel de cordial sobre los nervios y nos predica evangélicamente aquello
-de: «Amaos los unos a los otros». La antipatía en realidad sólo subsiste cuan­
-do tiene por base la envidia, y cuando la persona a quien se envidia, y se trata
-de cerca, en vez de decaer en el aprecio o admiración del envidioso, continúa
-creciendo más y más dentro de dicho espontáneo sentimiento de aprecio o
-admiración. Poniendo a un lado toda modestia, voy a confesar que este es el
-caso en que yo me encuentro respecto a mi tía, la honrada, ojerosa, moral y
-elocuentísima María Antonia Fernández de Aguirre, mujer de mi tío Eduardo
-Aguirre. Así como yo me he reconciliado con sus hijos, María Antonia, en
-cambio, cada día que pasa, me detesta más: ¡Qué caudal de sinceridad derro­
-cha para mostrarme su admiración y su antipatía aparejadas y resumidas
-dentro de su envidia, y cómo esta envidia suya se ingenia y se pone vidrios
-de aumento en los ojos, para exagerar mis pobres cualidades!
- Abuelita y tía Clara, quienes en realidad, como bien dice tío Pancho, tienen
-una marcada preferencia por mí sobre todos mis primos, se indignan contra
-estos sentimientos de María Antonia, y se encargan de defenderme muy acalo­
-radamente cuando ella directa o indirectamente me ataca, cosa esta, que al
-ocurrir de continuo, les da mucho trabajo, y les hace pasar la vida en eterna
-polémica. A mí en el fondo, la creciente antipatía de María Antonia, lejos de
- desagradarme, me halaga, porque filosóficamente atiendo a su origen. Ade­
-más, me sirve de diversión, puesto que he encontrado ya mi desquite o modo
-de vengarme. Este consiste en extender cada día más el predominio que ejer­
-zo sobre sus hijos, especialmente sobre Pedro José, el menor de todos, que
-tiene unos trece años. Los cuatro en general dominados sin duda por su
-madre, me eran hostiles al principio, pero con el trato, sus sentimientos han
-cambiado de rumbo. Comenzamos siendo amigos, y ahora, ellos, han decidi­
-do erigirme en modelo y me copian en todo. María Antonia se exaspera con­
-tra este servilismo de sus hijos, pero a pesar de su indignación, mis leyes y
-mi influencia reinan sobre ellos con todo el despotismo y la preponderancia
-de nuestra emperatriz la moda. Mis primos hablan como yo, copian mis frases,
-comparten mis más atrevidas ideas, se han apropiado mis gustos, tararean las
-canciones que yo tarareo y hasta en la mesa prefieren los mismos platos que
-yo prefiero .. .
- ¡Ah! querido arreo, disciplinado ejército, y qué bien me secundas en mi
-táctica pacífica y terrible, la cual tiene siempre titilando aquellas dos brillan­
-tes luminarias, que se asoman en aquellas dos negrísimas ojeras!
- Pero nada es comparable al poder que ejerzo sobre Pedro José, y al culto
-casi fanático que éste me profesa. Para demoler en lo posible la obra de su
-madre, ya que no podía alterar la esencia misma de su ser, le he alterado el
-nombre que es el símbolo o representación gráfica de dicha esencia: En lugar
-de Pedro José le llamo Perucho, y Perucho es a la vez mi paje, mi escudero,
-y mi trovador. No pasa un día sin que lleve a mi cuarto flores, aguacates,
-mangos o alguna dulcísima caña pelada y distribuida en menudos gajos. Peru­
-cho me ha dedicado unos versos que le valieron un expresivo abrazo y es él
-quien me acompaña siempre en los largos y silenciosos paseos que emprendo
-todas las tardes.
- Son estos diarios paseos, delicia y altísima fruición de mi espíritu, y son al
-mismo tiempo terrible incentivo del mal humor de María Antonia. Y es que
-no bien han dado las cuatro, cuando ya, con mi ancha falda corta de montar,
-mis polainas, mi sombrero alón atado sobre la barba a la moda llanera, y mi
-vara de sauce en la mano, con el solo objeto de exaltar dentro de sus órbitas
-los ojos de María Antonia, comienzo a escandalizar la casa gritando:
- ¡Perucho! ¡Perucho! ¿Ensillaste ya?
- Y Perucho, que me espera bajo los guayabos con los caballos ya listos
-atados a los troncos de los árboles, me contesta con un silbido ensordeced
-que trata de imitar el pito de una locomotora. Tan gran escándalo, iniciado^
-del movimiento de partida, y absolutamente innecesario, produce natural­
-mente el efecto deseado. María Antonia indignada se pone a comentar a
-media voz:
- ¡Qué me repugnan esos sobrenombres! ¡Qué feas y qué peligrosas me
-parecen esas intimidades con los muchachos varones!
- Pero yo hago como si nada hubiese oído, y me dirijo hacia la sombra de los
- guayabos donde me esperan Perucho y los dos caballos. El me ayuda a mon­
-tar mientras explica algo que poco más, poco menos, acostumbra ser así:
- Le di mucho maíz a mi caballo, para que no esté tan flojo como ayer. Al
-tuyo lo ensillé hoy con la cincha de la muía del mayordomo, el bocado del
-zaino, la gualdrapa nueva, y las riendas del caballo de Papá que son muy
-suaves.
- Este sistema de selección siembra el mayor desorden entre los aparejos de
-montar, y le valen al pobre Perucho las más terribles filípicas. Pero él, con
-un estoicismo digno de mejor causa, aguanta el chaparrón, y al siguiente día
-vuelve a hacer lo mismo.
- Abuelita, complacida y sonriente de vernos tan unidos, suele presenciar la
-partida tras una de las ventanas de la casa, y siempre, al arrancar los caballos,
-asoma boca y nariz por entre dos barrotes, para gritar estas o parecidas reco­
-mendaciones:
- ¡Poco a poco, niños! ¡No vayan tan ligero! ¡Cuidado con las ramas!
- ¡Cuidado con un mal paso! ¡Cuidado con una espantada de las bestias! ¡¡y
-tú, Pedro José, atiéndela mucho, camina detrás de ella, miren que una caída
-de caballo es muy peligrosa!! . . .
- Y trotando, trotando, con la brisa que nos azota el rostro, mi escudero y
-yo, bajamos el callejón, andamos un rato por la vega, nos internamos después
-entre las breñas de los cañaotes, y comenzamos a trepar montaña arriba.
-Entonces, mientras camino contemplando el paisaje, o mirando las blancas
-crines de mi caballo suavemente agitadas por el aire, medito un instante sobre
-las últimas palabras de María Antonia y Abuelita.
- Estas pequeñas meditaciones, suelen despertar en mi espíritu, pensamientos
-filosóficos, si es que así pueden llamarse ciertas observaciones o razonamien­
-tos que acostumbro hacer en mis ratos de soliloquio y que no confieso a
-nadie por temor de que puedan parecer impertinentes o ridiculas. Mientras
-corre mi caballo al lado del de Perucho, que como yo, va también abismado
- en un profundo silencio, suelo comentar estas meditaciones exclamando
-interiormente:
- «¡Es curioso! María Antonia que me detesta, se preocupa con vivísimo
-interés de mi salud moral, y ha descubierto que mi intimidad con Perucho
-es fea y peligrosa. En cambio, Abuelita, que declara todos los días la impor­
-tancia de dicha salud moral y parece estar convencida de su altísima superio­
-ridad sobre la salud física, en este caso, sólo se preocupa de la última, no mira
-más peligros que los que puede proporcionarme el caballo trotando demasiado
-de prisa, y ella, que tanto me quiere, me demuestra en semejante ocasión,
-una profunda indiferencia puesto que así desdeña mi preciosa y delicada salud
-moral».
- Y como en tales momentos, todo cuanto a Perucho y a mí nos rodea, pare­
- ce hablar el lenguaje de la grandiosidad, yo a pesar de mi decantada inexpe­
-riencia, miro por un instante con extraordinaria lucidez, el inefable misterio
- de las cosas, adivino los secretos equilibrios de la vida, y acabo por admirar
- con toda mi alma la bondad de la Providencia, que en su sabia economía, ha
-puesto el cuidado de nuestra salud física entre las manos de los que nos aman,
-y el cuidado de nuestra salud moral entre las manos de los que nos aborrecen.
-«Gracias a tan sabia distribución continúo monologando interiormente,
-arrullada siempre por la brisa y el rítmico trotar de los caballos , el odio
-viene a ser tan altruista o más altruista que el cariño, el cual andaría siempre
-vendado a la moda de Cupido, si no fuera por las discretas advertencias que
-en asuntos de estricta moral suele comunicarle el primero. He aquí, pues,
-cómo no deben juzgarse las cosas a la ligera, y cómo el odio, a pesar de su
-mala reputación, es en realidad el despierto centinela que vigila nuestra virtud,
-la base más solida sobre la cual se asienta nuestro sentido moral y el semillero
-donde crecen juntos y entrelazados la pureza y el espíritu de previsión» . . .
- Pero semejantes soliloquios se paralizan inmediatamente en mi cerebro
-al recordar que esta malhadada propensión a la filosofía es causa de mi des­
-dicha, fuente de mi tristeza, y origen de mi reclusión en San Nicolás, cosa
-que hasta el presente he sobrellevado con bastante estoicismo. Sí; de no
-haberme puesto a formular en palabras mis impresiones particulares sobre el
-pudor y la moral, tía Clara no se habría escandalizado aquel día, ni Abuelita
-se habría alarmado hasta el punto de decretar mi inmediato destierro fuera de
-Caracas. Y como tan fatal experiencia no ha caído por fortuna en saco roto,
-y como ya he visto y palpado que el almacenar ideas propias es cosa tan
-insensata y peligrosa como el llevar una bomba de dinamita en el bolsillo,
-rechazo en seguida todo género de filosofías, y me pongo a dialogar con Peru­
-cho, quien paso a paso, camina ahora tras de mí, por la estrecha, larga y
-sombreadísima senda, que se estira y serpentea a la margen izquierda del río.
- Cuando llegamos a un tranquilo remanso, en donde el río se abre en dos y
-le tiende un brazo de agua a la montaña, Perucho acostumbra consultarme:
- ¿Nos quedamos aquí en la toma, o seguimos más arriba?
- Por regla general yo prefiero quedarme en la toma, porque es allá en donde
-el río tiene para mí aquel encanto sereno y misterioso. Así, pues, no bien
-he contestado a la pregunta de Perucho diciendo: «quedémonos aquí hoy»,
-cuando él, se desmonta de un salto, me ayuda a bajar a mí, y luego de atar
-los caballos a la sombra de un gran matapalo, comenzamos a buscar asiento
-brincando por los peñones que están dentro del agua. Después de mucho
-escoger, acabo siempre por sentarme sobre la peña que ataja la corriente en
-un pozo, y allí me pongo a contemplar el río, y le miro, le miro, muy fijo y
-muy cerca, hasta que poco a poco se va callando el mundo entero de mis
-pensamientos, olvido las ideas surgidas unos minutos antes, al pausado trotar
-de mi caballo, se borran unas tras otras las diversas imágenes materiales reco­
-gidas en el día, y convertida ya en un pedazo inconsciente de la naturaleza,
-empiezo a escuchar la voz sencilla y generosa del agua. En ese momento ya
-no existe para mí, ni Abuelita, ni María Antonia, ni la casa de abajo, ni mi
-cuarto, ni mis libros, ni mis penas, ni yo misma, porque de tanto mirar el río
-me parece que también me fui caminando en su corriente, y que junto a las
- piedras y las arenas del fondo, junto a las frutas caídas y las ramas secas que
-pasaron flotando, junto al encaje de los árboles, y los azules pedazos de cielo
-que se reflejan desde arriba, el agua lleva también en sus entrañas este divino
-y torturante poema de mi amor. Sentada como estoy sobre la roca, en el pobla­
-do silencio del paisaje, copio por un instante el alma inmóvil de la piedra, y
-me quedo tranquila y callada, para que el río al pasar me cante mi poema en
-sus murmullos y me lo vaya enseñando en su espejo.
- Pero semejante estado de arrobamiento dura apenas unos cuantos minutos,
-porque a su conjuro se despierta de pronto en mí una alegría inexplicable y
-bulliciosa. Entonces, con gran locuacidad, comienzo a hablar a Perucho, me
-río sin razón aparente, corro por encima de las peñas, tiro piedrecitas a los
-árboles y a los peñones del río y se me ocurren los más diversos caprichos.
-Desde su asiento, Perucho contempla mi alegría con ojos de tímida adoración
-y a medida que voy inventando mis caprichos, él los adivina todos y todos
-los realiza al instante para complacerme. Si es una fruta, se sube al árbol y
-la coge; si es una mariposa de las grandes, corre tras ella y la caza con su som­
-brero de cogollo levantado en el aire; si es una flor, la corta y me la trae, así
-haya tenido que descalzarse para subir a los árboles o que meterse en el agua
-hasta las rodillas para caminar dentro del río.
- Un día, tuve la inmensa curiosidad de conocer los frescos y bulliciosos
-secretos del remanso y quise bañarme. No bien hube formulado tal deseo,
-cuando Perucho tomó al punto su caballo, bajó hasta la casa, y en menos de
-veinte minutos, jadeante y sudoroso, cargado de mi paño, mi jabón y mi agua
-de colonia, estaba ya de regreso en la toma. Muy celoso de que nadie pasara,
-se fue en seguida a hacer la guardia junto a los caballos, a las puertas del cal
-y canto, mientras que yo, sola y desnuda, creyendo ser el alma viva del paisaje,
-me hundía en la ansiada frescura de mi pozo predilecto. Y recuerdo que
-aquel día, sumergida en el pozo, perdí como nunca la noción de mi propia
-existencia, porque el rodar del agua me tenía la piel adormecida en no sé
-qué misteriosa delicia, y porque mis ojos vagando por la altura, olvidados
-de sí mismos, se habían puesto a interpretar todos los amores de aquella
-muchedumbre de ramas que se abrazan y se besan sobre su lecho del río.
- Es sólo cuando el crepúsculo se apaga ya de un todo, cuando Perucho y yo
-acostumbramos regresar a la casa. Los caballos entonces, ansiosos como están
-de verse en la caballeriza, corren al atravesar la sendita del río y vuelan como
-dos pájaros al pisar los callejones de la vega. Este desenfrenado correr que
-nos arranca los sombreros y nos despeina los cabellos nos pone también alas
-de regocijo en el espíritu. Con la inmensa alegría de la carrera, sobre los dos
-caballos que vuelan unidos por el camino, Perucho y yo levantamos los bra­
-zos en el aire para asustar a los bueyes que se fuman su rama de cogollo a la
-puerta de los ranchos; damos voces a la gente que vemos blanquear en la
-noche; cantamos juntos a plena voz; y él, puesto de pie sobre los estribos, le
-contesta en su mismo tono a cuanta pavita o tuqueque se le ocurra graznar
-escondido en la maraña de las matas. A l oírle, yo me río a carcajadas cele­
- brando el parecido, le aplaudo sus hazañas de jinete, y los dos a la vez, cuan­
-do bajamos a lo más hondo del cañaote, fingiendo un prolongado lamento,
-llamamos al eco que también nos contesta desde las negras encrucijadas del
-monte.
- Estos diarios paseos vespertinos son consoladores como la confesión, por­
-que descargan mi alma de su carga de tristeza. El río, con la misericordia de
-sus matas, sus peñones y sus murmullos, es el confesor que me absuelve todos
-los días de las negruras que le llevo; él me da consejos de esperanza, y me
-deja siempre en el espíritu la gracia infinita de la alegría. Yo bendigo a la
-brisa que me despeina los cabellos; bendigo a mi caballo que corre contra la
-brisa; y luego de bendecir a la naturaleza entera, también bendigo a Perucho,
-que es mi escudero y es mi acólito, en estas peregrinaciones sentimentales.
- Pero según me fijo ahora, mi gran intimidad con Perucho merece capítulo
-especial, porque es a un tiempo sencilla y complicada; y porque a la vez que
-distrae mi preocupación de amor, me hace vivir activamente dentro de ella.
- Comencé siendo amiga suya, con un compañerismo muy despreocupado y
-muy infantil. Me era útil por su agilidad y por su carácter servicial y soñador,
-siempre dispuesto a complacerme e inventé llevarlo conmigo a mis solitarios
-paseos, como hubiera podido llevar un gran perro silencioso que anduviera
-junto a mí sin perturbar mis ensueños con palabras importunas. Pero desde
-el día en que María Antonia dijo por primera vez aquello de: «¡Qué feas y
-peligrosas me parecen esas intimidades con los muchachos varones!», sin
-saber por qué, Perucho comenzó a tener a mis ojos un inmenso interés; su
-presencia fue para mí la presencia animada del amor, y así como los niños
-juegan con sus trenes y sus muñecos de juguete disfrazándolos de realidad
-con la imaginación, yo me puse desde entonces a jugar con Perucho, como si
-éste fuese mi juguete y también lo disfracé de realidad, porque en mi imagina­
-ción se me ocurrió convertirlo en Gabriel. Y naturalmente, dado este punto
-de vista, Perucho ha adquirido para mí una gran importancia. El me quiere
-de veras con su inmensa adoración silenciosa y tímida, y yo, por generosidad
-hacia él, y por vivir activa dentro de mi amor, mientras sueño apasionada­
-mente con Gabriel, prodigo en miradas y sonrisas a Perucho, esta divina facul­
-tad de alegrarnos fácilmente la vida, alegrándola también a los demás, facul­
-tad que no todas las mujeres poseen, y que la gente inconsciente llama con
-desprecio coquetería.
- Es pues, gracias a mi gran intimidad con Perucho, como he venido a descu­
-brir que poseo en alto grado esta facultad de la coquetería, que cual madre
-cariñosa, nos dirige o enseña a caminar por los divinos caminos del amor.
-Y naturalmente, como en mi fuero interno yo considero que dicha facultad,
-además de ser una fuente de alegría, es también una prueba de generosidad,
-no tengo inconveniente ninguno en reconocerla ante mí misma, y reconocer
-además que estoy satisfechísima de poseerla; y de que cuantos días pasan,
-deploro más el no haberla descubierto y ejercitado antes con Gabriel . . . ¡sí! . .
- ¡en vez de aquella necia timidez que me cohibía y me paralizaba en su presen­
- cia! . . . ¡Pero así son estos caprichos del destino! . . . ¡Y qué maraña de
-misterios y de sorpresas llevamos todos, Dios mío, dentro del corazón! . . .
- Estoy segura de que si Abuelita, tía Clara, o cualquier otra persona seria
-y de sólidos principios, leyera lo que acabo de escribir, lo encontraría muy mal
-y haría unos pronósticos desagradables y ofensivos acerca de mi futura repu­
-tación. Pero no estarían en lo cierto. Mis demostraciones o coqueterías hacia
-Perucho son a mis propios ojos la prueba más palpable y segura de que soy
-una mujer esencialmente fiel. Sí. A pesar de su indiferencia, y a pesar del
-abandono en que me tiene, yo no quiero sino a Gabriel, y es segurísimo que
-de no haberlo conocido nunca, Perucho no habría visto todavía la primera
-de las amables e insinuantes sonrisas que lo hacen tan feliz.
- Esta pequeña experiencia de mi vida, me lleva a considerar que en el amor
-de nosotras las mujeres, existen siluetas tan invisibles y sublimes, como en
-el puro y teológico amor de Dios. Por lo que llevo visto, no siempre nos es
-dado amar en su apariencia sensible al que quisiéramos amar, y es claro, al
-no poder amar directamente aquello que queremos no nos queda más recurso
-que amarlo indirectamente en aquello que podemos. Ahora bien: ¿no hay en
-esta suprema fidelidad al ausente, amado a través de un objeto presente,
-grandes puntos de contacto con el amor altísimo del asceta que adora esencial­
-mente a Dios, adorando en apariencia una imagen de madera o de yeso? ¿No
-vibra también en este caso mío el misterio augusto de la intención que todo
-lo purifica y transforma la burda idolatría en santa y piadosa veneración?
-Pues bien, todos estos delicados matices existen también en mi alma y gracias
-a ellos, ante los ojos de mi amor, Perucho no es Perucho, sino la imagen
-animada que se convierte a ratos en Gabriel por obra y gracia del misterio
-augusto de la intención. Mi caso es un caso de amor humano, en el cual
-parecen aliarse todas las sublimes y teológicas sutilezas del amor divino. Y
-sin embargo, estoy cierta de que elegido juez en el asunto, así fuera Abuelita,
-Mercedes, o el mismo Gabriel, cometerían la ligereza de fallar injustamente,
-y es muy probable que me designaran con los epítetos de inconstante, infiel,
-variable, o cualquier otro desagradable concepto por el mismo estilo. Pero
-yo, dado semejante caso, también los juzgaría a ellos, como juzgó la Iglesia a
-aquellos herejes llamados iconoclastas, que en su gran torpeza, jamás pudieron
-medir el abismo que separa la imagen material de la esencia ideal, y la forma
-visible, del fondo sublime e invisible.
- Finalmente, como resumen o conclusión de todos los anteriores razona­
-mientos declaro: que mi amor hacia Gabriel es cada día más vehemente y más
-grande; que mis pequeñas demostraciones a Perucho no son sino la manera
-de expresar exteriormente el culto de este amor que vive y se desborda en mi
-alma; que poseo del amor en general un concepto muy elevado y algo pan-
-teísta, y que, por último, mi sistema de fidelidad espiritual, digan lo que quie­
-ran las personas irreflexivas, es mil veces más puro y meritorio que esa fide­
-lidad exterior y corriente, que suelen imponer los hombres, los convenciona­
-lismos y las leyes.
- Y para demostrar mejor ante mi propia conciencia la verdad de semejantes
-afirmaciones, y la fidelidad de mi amor hacia Gabriel, voy a transcribir aquí
-esta pequeña escena ocurrida hace dos tardes junto a la margen del río.
- Yo me hallaba sentada como acostumbro en la gran peña que cierra y pro­
-tege el remanso. Mis pies casi tocaban el agua; me había puesto en el som­
-brero una rama de trinitaria muy llena de flores, y me entretenía en echar a
-navegar las cáscaras de unos mamones que, desde la cúspide del árbol, Peru­
-cho me había arrojado en la falda. Era un copioso racimo verde que yo des­
-granaba lentamente. Una vez separado el grano, cortaba en dos la cáscara;
-despojaba el hueso con mis dientes; despojado ya, lo ponía de nuevo en el
-cascarón convertido en barca; con cuidado de que no naufragase, lo echaba a
-flotar en el agua, y al mirarle partir río abajo, me imaginaba ver aquellas
-embarcaciones funerarias, que allá en la India, tripuladas por un cadáver,
-descienden solitarias la sagrada corriente del Ganges.
- Muy embebida estaba entregada a tan suaves y poéticas consideraciones,
-mientras que Perucho no se cansaba de correr y deslizarse como una lagartija
-por entre el laberinto de ramas, hojas y horquetas del gigantesco mamón. De
-pronto oí un estridente silbido que me hizo levantar la cabeza. Era Perucho
-que montado a caballo sobre una rama altísima, con los pies descalzos en el
-aire y las dos manos formando bocina junto a la boca, solicitaba mi atención
-para gritarme tal y como si se tratase de algo muy indispensable y urgente:
- ¡Oye, María Eugenia! ¿Sabes a quién te pareces vista desde aquí arriba?
- ¡Pues con esa trinitaria en el sombrero, estás igual, pero igualita a la mucha­
-cha del cromo de las píldoras de Ross, ese anuncio que hay en la puerta de la
-botica de la esquina de casa, allá en Caracas! . . .
- Como yo conozco el cromo en cuestión, y la muchacha es en realidad encan­
-tadora, semejante apreciación sorprendió mi amor propio en una agradable
-emboscada, me distrajo de mi melancólica tarea, e iluminó repentinamente
-mi cerebro con sonrientes y placenteras ideas. La observación de Perucho me
-resultó mil veces más interesante que si me hubiese comparado con la Venus
-de Milo, cosa que tal vez habría sonado en mis oídos como un lugar común
-incapaz de halagar mi vanidad; lo de las píldoras de Ross gritado desde la
-copa del mamón, me pareció encantador y muy sincero.
- Y para recompensar a Perucho de su oportuna galantería, ladeada la cabeza,
-con la vista hacia lo alto, por entre ramas y hojas le miré largamente, y luego,
-iluminando mi expresión con una sonrisa que yo juzgué ser la más sugestiva
-de mi repertorio, le pregunté cariñosa:
- ¿Sí? . . .
- Y allá en la altura, tan claro se reflejó en el rostro de Perucho el efecto
-producido por la sonrisa y por la voz de mi pregunta que pensé inmediata­
-mente:
- ¡Así hablaré y así sonreiré a Gabriel cuando lo vea!
- Después eché de un golpe al agua el verde racimo de frutas que llevó la
-corriente; me recosté en la piedra, y comencé a soñar mirando caminar el río.
- Como si hubiese tenido la influencia de esas drogas, alucinantes y embria­
-gadoras, el diálogo cortísimo, sostenido con Perucho, despertó en mí el recuer­
-do de Gabriel tan vivo y tan violento, que lo sentí moverse en el río, en los
-árboles, en los pájaros, en Perucho, y en todo aquello que se movía y que me
-rodeaba; lo sentí después dentro de mí, y lo sentí tan hondamente, que tuve
-la fantasía de escribirle allí mismo, una carta sincera y estrafalaria en donde
-le contase toda la alegría y todo el suplicio de mi amor . . .
- Y elevé de nuevo la cabeza, volví a mirar a la altura, con mis dos manos
-formando bocina llamé a Perucho, y lo mismo que él había gritado unos
-minutos antes, le grité yo a él:
- ¡Oye Peruchito! ¡Bájate un momento de esa mata, ve donde los caballos,
-saca de la silla del mío un libro que tiene adentro lápiz y papel, y me lo traes,
-que quiero escribir una carta!
- Cuando regresó con el libro y el recado de escribir, le recomendé en una
-amable súplica:
- Ahora te quedas quieto, y no me llames porque me molestarías. Yo no
-puedo escribir cuando me hablan.
- Y sobre la piedra del río, con el libro por cartera, y mis rodillas por escri­
-torio, limando de tiempo en tiempo en una peña vecina la punta de mi lápiz
-cuando se hacía muy roma, mientras duró la luz del día estuve escribiendo,
-y escribí febrilmente esta carta, que tiene la loca sinceridad de todas las
-ardientes y silenciosas cartas de amor que nunca se envían. En ella retraté la
-suave verdad de la naturaleza que me rodeaba, y dentro de la verdad de la
-naturaleza, también retraté la verdad de mi alma, con el puro impudor con
-que nos retrata el agua, y con la fresca desnudez de aquellas piedras que esta­
-ban tomando a mi vista su eterno y rumoroso baño de río.
- Y es así más o menos como dice la carta que escribí aquella tarde sentada
-sobre la peña y con mis rodillas de escritorio:
- «Gabriel:
- Yo te quiero, porque un día me dijiste con palabras que tú me querías.
-Te quiero, porque antes de decírmelo con la claridad de las palabras, me lo
-habías dicho ya con la claridad de tus ojos que son para mi alma las dos lám­
-paras siempre encendidas que titilan a lo lejos en su noche. Te quiero, porque
-tu recuerdo está cerrado dentro de mi memoria, y ella lo guarda en silencio
-con la sumisión fragante y muda con que el cofre de sándalo guarda la joya.
-Te quiero, porque vives y te mueves en mí, tan animado y tan hermoso como
-si yo fuera el espejo inmóvil y tú fueras la viva imagen que en él se asoma y
-se contempla. Te quiero, porque mi alma se ha asomado también sobre la
-tuya, y al mirarse a sí misma, se ha estremecido de sorpresa como la cordi­
-llera sedienta que por primera vez mira blanquear su vellón en el remanso.
- Gabriel: Tu amor se ha venido conmigo, y es en tu ausencia el pajarillo
-cantor que viaja prisionero dentro de su jaula, brinca bullicioso en la estrechez
-de los barrotes y canta en sus gorjeos: ¡Ah! ¡si viniera algún día la mano
-poderosa que me abriera la jaula!
- Tu amor, Gabriel, se ha venido conmigo, se ha traído al destierro toda su
-cosecha de rosas, ha tejido con ellas una blanca guirnalda, y la tiene clavada
-en mi corazón con los mil clavos agudos de sus espinas. Las espinas se han
-teñido de sangre, y mi corazón las bendice, las acoge en su blando regazo, y
-bajo los mil aguijones, dolorido y embriagado de perfume, se ha quedado
-inmóvil, no fueran a deshojarse las rosas.
- Gabriel: con la aureola de tu amor sobre la frente, caminando por la aridez
-de mi camino, te miré venir hacia mí, y tú eres desde entonces el dulce Mesías
-de mi alma. Las huellas de tus sandalias al pisar sobre el polvo, me han traza­
-do una senda de esperanza, y corro por la senda en pos de ti; voy rendida y
-sedienta, pero voy animosa, porque pienso en las delicias del vino de Caná,
-y espero saciar mi hambre en la abundancia milagrosa de los peces y los panes.
- Tú eres el dulce Mesías de mi alma, Gabriel, y tu amor es el agua del Jordán
-que me ha redimido para siempre de las prisiones del Limbo. En la absti­
-nencia y en la soledad de mi desierto, yo bendigo tus dos manos tan generosas
-y tan buenas como las manos de Jesús porque ellas se extendieron un día
-sobre mi frente, y abrieron a la vida estos dos ojos que estaban cerrados y a
-oscuras como los ojos del ciego de nacimiento.
- Tú eres dulce Mesías de mi alma, Gabriel, y yo bendigo la misericordia de
-tus pies que te trajeron a mí. Como los pies ungidos de Jesús le llevaron
-a la casa de Jairo, así también los tuyos te entraron a la casa de mi alma, la
-hallaste pálida y dormida en el blanco sudario de su inocencia y también le
-dijiste: «¡Levántate!» Pero tú, Gabriel, no has tenido para el milagro la
-piedad generosa de Jesús, porque a mis ojos abiertos les has quitado el sol
-que ellos anhelan, y a mi alma despierta la has dejado sola y encerrada en su
-casa.
- Gabriel: Tu amor se ha desposado con mi alma, vive junto a ella y con ella
-se agita a todas horas en la prisión de mi cuerpo. Cuando acerco mis dedos a
-las sienes escucho el revoltoso aleteo de tu amor dentro de mí, y como el pája­
-ro prisionero a quien dejaron abierta la puertecilla de su jaula, lo siento posar­
-se muchas veces en la puertecilla abierta de mis ojos, oigo el rasguear de sus
-alas en el aire, y un segundo después lo miro volar arrogante y feliz por la
-libertad del campo.
- Sí, Gabriel; cuando estoy sentada en mi peña del río desde la cual te escri­
-bo ahora, tu amor revolotea a mi alrededor por todas partes. Es él quien canta
-para mí la canción del agua sobre las piedras; él quien corriendo a toda prisa
-se lleva el río de la mano, en una carrera loca, llena de tropezones; él quien
-le pone al agua esos labios frescos y turbadores que algunas veces se suben a
-la peña para besarme furtivamente los pies, y a su contacto mi cuerpo entero
-se estremece de sorpresa y de placer; él quien se arregla tan lindo y con su
-sombrero de paja lleno de flores, se asoma en el pozo, me saluda, y me remeda
-tan gracioso, cuando yo, sedienta de mirarlo, me inclino sobre el río para
-buscarlo en el agua; es él quien se sube a las matas, y me llama desde arriba
-cabeceándose en las ramas; él quien se sienta entre las dos alas de la brisa
- para besarme los ojos y acariciarme los cabellos cuando volando sobre la ale­
-gría de mi caballo a la hora del crepúsculo vuelvo a la casa; es él quien se
-esconde por las oscuras encrucijadas, y con la voz del eco me contesta si yo
-lo imploro a gritos desde la hondonada de los cañaotes; y es él quien se viste
-de negro, se asoma a los ojos de mi primo Perucho, y animado y brillante, me
-llama y me hace señas de amor, como la madre a su niño, para que yo le
-sonría.
- Gabriel: Sentada en la peña del río te escribo hoy porque quiero contarte
-que sobre la blanca belleza de mi cuerpo he visto' florecer de pronto la inmen­
-sa abundancia de la Primavera. Agobiada de flores, con el regalo de mi
-amor entre los brazos yo te espero impaciente noche y día, y en la esperanza
-de mi espera, soy en tu ausencia, como un oasis perdido en la mitad de un
-desierto.
- Junto al borde del camino, con mi regalo de amor entre los brazos, te
-espero Gabriel todos los días, y mi amor al presentirte abre sus ojos, brinca
-de alegría y quiere salirse de mis brazos para correr a tu encuentro, como el
-cabritillo travieso que ha escuchado a lo lejos la esquila de su madre.
- Gabriel: te escribo porque no puedo ya más con la carga de mi secreto, y
-para que vengas a llevarla conmigo quiero decirte que tu amor es para mí
-la hermosísima canción de un Cantar de mis Cantares . . . Tu boca que es tan
-sabia y tan gloriosa como la boca de Salomón, se acerca muchas veces junto a
-mí, me roza los oídos con su aliento, y me lo canta muy bajo para que yo lo
-escuche y nadie más pueda oírlo.
- Como la Sulamita, Gabriel, yo también tengo aprendidas las palabras del
-Cantar, y como ella te llamo a todas horas en mi soledad y en mi canción te
-digo: «Cuando el día refresque y las sombras desciendan, vuelve, vuelve,
-Amado mío. Hermoso mío, como las corzas y los gamos en el monte de
-Betel» . . . Pero tú no me escuchas, Gabriel; la voz que canta mi cantar
-se ha perdido muchas veces en la oscuridad de la noche y porque quiero levan­
-tarla más y más hasta que llegue a la cumbre de tus oídos, te la envío volando
-presa entre las alas de esta carta.
- Gabriel: en el desierto abrasador de tu ausencia, eres tú mi glorioso Salo­
-món; y yo soy tu rendida Sulamita. Tendida estoy sobre el ardor de la arena,
-y cubierta con mis joyas y abrasada por la sed, vigilo atentamente el hori­
-zonte, porque yo quiero ser la primera en ver lucir a lo lejos el brillo de tu
-palanquín, mi triunfante Salomón.
- Yo soy tu amorosa Sulamita, Gabriel, y para la fiesta del amor con que te
-aguardo, he vestido ya mi lindo cuerpo con la pompa de la desposada en el
-palacio del Rey.
- Y soy tu doliente Sulamita, Gabriel, y para el suplicio resignado de la
-espera, he vestido también mi callado tormento con la humildad dolorosa
-de la hierba que por las noches va pisando mi caballo en su carrera.
- Gabriel: Con la pompa de la desposada y con la humildad de la hierba
-yo soy tu Sulamita y te espero noche y día, mi glorioso Salomón. Oye, oye
- bien esta voz que te llama en mi carta, amado mío, hermoso mío, baja a toda
-prisa como las corzas y los gamos del monte de Betel, y ven, ven a enseñar
-con tu boca, al silencio de la mía, la hermosísima canción del Cantar de tus
-Cantares!»
+Creo que la antipatía es un sentimiento caprichoso y superficial que en el fondo no existe ni tiene razón de ser. En realidad casi nadie es antipático. Si se considera a las personas muy de cerca y se penetra con bondad en la esencia de su psicología, acabamos por admirar sus cualidades, y tolerar sus defectos, como en el orden físico toleramos la lluvia; el calor; las manchas en la pared del cuarto que habitamos; o la almohada dura de la cama en que dormimos: todo es cuestión de tiempo y de paciencia. Esta es a mi ver una de las pruebas más palpables de que el hombre es un animal sociable que ha nacido para vivir en compañía de sus semejantes. Si ciertos defectos que ostentan a veces los demás nos crispasen siempre los nervios como el primer día en que los conocimos, acabaríamos sin duda ninguna por preferir el suicidio a la compañía de esas personas. Pero afortunadamente todo en la naturaleza está muy bien ordenado y la costumbre, que es muy conciliadora, hace el papel de cordial sobre los nervios y nos predica evangélicamente aquello de: «Amaos los unos a los otros». La antipatía en realidad sólo subsiste cuando tiene por base la envidia, y cuando la persona a quien se envidia, y se trata de cerca, en vez de decaer en el aprecio o admiración del envidioso, continúa creciendo más y más dentro de dicho espontáneo sentimiento de aprecio o admiración. Poniendo a un lado toda modestia, voy a confesar que éste es el caso en que yo me encuentro respecto a mi tía, la honrada, ojerosa, moral y elocuentísima María Antonia Fernández de Aguirre, mujer de mi tío Eduardo Aguirre. Así como yo me he reconciliado con sus hijos, María Antonia, en cambio, cada día que pasa, me detesta más: ¡qué caudal de sinceridad derrocha para mostrarme su admiración y su antipatía aparejadas y resumidas dentro de su envidia, y cómo esta envidia suya se ingenia y se pone vidrios de aumento en los ojos, para exagerar mis pobres cualidades!
 
- Y una vez terminada tan estrambótica carta, me quedé un largo rato inmó­
-vil sobre la peña. La falta de luz me impedía leer lo escrito, y comencé a
-repasarlo con la memoria, mientras que con los ojos veía parpadear los cocu­
-yos y brillar de trecho en trecho la cinta bruñida del río. Unida a mi quietud
-y a mi silencio, la oscuridad poco a poco se fue haciendo más densa, hasta que
-al fin, se mezcló con las piedras, se fundió completamente con el agua, me
-estrechó más de cerca; se abrazó conmigo; y yo sentí en mis brazos no sé si
-un frío que parecía miedo o si un miedo delicioso y cosquilleante que parecía
-frío. Por un instante, me creí enteramente sola con la oscuridad, y tuve un
-gran sobresalto, cuando cerca de mí la voz de Perucho dijo:
- ¿Y cuándo nos vamos por fin, María Eugenia?
- A l oírle recogí con avaricia y con susto los tres pliegos escritos que blan­
-queaban sobre mí falda como tres claridades de luna; los escondí en mi seno;
-de la mano de Perucho saltando de piedra en piedra atravesé un pedazo de
-río, y los dos juntos nos fuimos en seguida a tomar los caballos, que piafaban
-impacientes bajo la noche profunda del matapalo.
+Abuelita y tía Clara, quienes en realidad, como bien dice tío Pancho, tienen una marcada preferencia por mí sobre todos mis primos, se indignan contra estos sentimientos de María Antonia, y se encargan de defenderme muy acaloradamente cuando ella directa o indirectamente me ataca, cosa ésta que al ocurrir de continuo, les da mucho trabajo, y les hace pasar la vida en eterna polémica. A mí en el fondo, la creciente antipatía de María Antonia, lejos de desagradarme, me halaga, porque filosóficamente atiendo a su origen. Además, me sirve de diversión, puesto que he encontrado ya mi desquite o modo de vengarme. Éste consiste en extender cada día más el predominio que ejerzo sobre sus hijos, especialmente sobre Pedro José, el menor de todos, que tiene unos trece años. Los cuatro en general dominados sin duda por su madre, me eran hostiles al principio, pero con el trato, sus sentimientos han cambiado de rumbo. Comenzamos siendo amigos, y ahora, ellos, han decidido erigirme en modelo y me copian en todo. María Antonia se exaspera contra este servilismo de sus hijos, pero a pesar de su indignación, mis leyes y mi influencia reinan sobre ellos con todo el despotismo y la preponderancia de nuestra emperatriz la moda. Mis primos hablan como yo, copian mis frases, comparten mis más atrevidas ideas, se han apropiado mis gustos, tararean las canciones que yo tarareo y hasta en la mesa prefieren los mismos platos que yo prefiero...
+
+¡Ah!, ¡querido arreo, disciplinado ejército, y qué bien me secundas en mi táctica pacífica y terrible, la cual tiene siempre titilando aquellas dos brillantes luminarias, que se asoman en aquellas dos negrísimas ojeras!
+
+Pero nada es comparable al poder que ejerzo sobre Pedro José, y al culto casi fanático que éste me profesa. Para demoler en lo posible la obra de su madre, ya que no podía alterar la esencia misma de su ser, le he alterado el nombre que es el símbolo o representación gráfica de dicha esencia: en lugar de Pedro José le llamo Perucho, y Perucho es a la vez mi paje, mi escudero, y mi trovador. No pasa un día sin que lleve a mi cuarto flores, aguacates, mangos o alguna dulcísima caña pelada y distribuida en menudos gajos. Perucho me ha dedicado unos versos que le valieron un expresivo abrazo y es él quien me acompaña siempre en los largos y silenciosos paseos que emprendo todas las tardes.
+
+Son estos diarios paseos, delicia y altísima fruición de mi espíritu, y son al mismo tiempo terrible incentivo del mal humor de María Antonia. Y es que no bien han dado las cuatro, cuando ya, con mi ancha falda corta de montar, mis polainas, mi sombrero alón atado sobre la barba a la moda llanera, y mi vara de sauce en la mano, con el solo objeto de exaltar dentro de sus órbitas los ojos de María Antonia, comienzo a escandalizar la casa gritando:
+
+—¡Perucho! ¡Perucho! ¿Ensillaste ya?
+
+Y Perucho, que me espera bajo los guayabos con los caballos ya listos y atados a los troncos de los árboles, me contesta con un silbido ensordecedor que trata de imitar el pito de una locomotora. Tan gran escándalo, iniciador del movimiento de partida, y absolutamente innecesario, produce naturalmente el efecto deseado. María Antonia indignada se pone a comentar a media voz:
+
+—¡Qué me repugnan esos sobrenombres! ¡Qué feas y qué peligrosas me parecen esas intimidades con los muchachos varones!
+
+Pero yo hago como si nada hubiese oído, y me dirijo hacia la sombra de los guayabos donde me esperan Perucho y los dos caballos. Él me ayuda a montar mientras explica algo que poco más, poco menos, acostumbra ser así:
+
+—Le di mucho maíz a mi caballo, para que no esté tan flojo como ayer. Al tuyo lo ensillé hoy con la cincha de la mula del mayordomo, el bocado del zaino, la gualdrapa nueva, y las riendas del caballo de Papá que son muy suaves.
+
+Este sistema de selección siembra el mayor desorden entre los aparejos de montar, y le valen al pobre Perucho las más terribles filípicas. Pero él, con un estoicismo digno de mejor causa, aguanta el chaparrón, y al siguiente día vuelve a hacer lo mismo.
+
+Abuelita, complacida y sonriente de vernos tan unidos, suele presenciar la partida tras una de las ventanas de la casa, y siempre, al arrancar los caballos, asoma boca y nariz por entre dos barrotes, para gritar estas o parecidas recomendaciones:
+
+—¡Poco a poco, niños! ¡No vayan tan ligero! ¡Cuidado con las ramas! ¡Cuidado con un mal paso! ¡Cuidado con una espantada de las bestias! ¡¡y tú, Pedro José, atiéndela mucho, camina detrás de ella, miren que una caída de caballo es muy peligrosa!!...
+
+Y trotando, trotando, con la brisa que nos azota el rostro, mi escudero y yo, bajamos el callejón, andamos un rato por la vega, nos internamos después entre las breñas de los cañaotes, y comenzamos a trepar montaña arriba. Entonces, mientras camino contemplando el paisaje, o mirando las blancas crines de mi caballo suavemente agitadas por el aire, medito un instante sobre las últimas palabras de María Antonia y Abuelita.
+
+Estas pequeñas meditaciones, suelen despertar en mi espíritu pensamientos filosóficos, si es que así pueden llamarse ciertas observaciones o razonamientos que acostumbro hacer en mis ratos de soliloquio y que no confieso a nadie por temor de que puedan parecer impertinentes o ridículas. Mientras corre mi caballo al lado del de Perucho, que como yo, va también abismado en un profundo silencio, suelo comentar estas meditaciones exclamando interiormente:
+
+—«¡Es curioso! María Antonia que me detesta, se preocupa con vivísimo interés de mi salud moral, y ha descubierto que mi intimidad con Perucho es fea y peligrosa. En cambio, Abuelita, que declara todos los días la importancia de dicha salud moral y parece estar convencida de su altísima superioridad sobre la salud física, en este caso, sólo se preocupa de la última, no mira más peligros que los que puede proporcionarme el caballo trotando demasiado de prisa, y ella, que tanto me quiere, me demuestra en semejante ocasión, una profunda indiferencia puesto que así desdeña mi preciosa y delicada salud moral».
+
+Y como en tales momentos, todo cuanto a Perucho y a mí nos rodea; parece hablar el lenguaje de la grandiosidad, yo a pesar de mi decantada inexperiencia; miro por un instante con extraordinaria lucidez, el inefable misterio de las cosas, adivino los secretos equilibrios de la vida, y acabo por admirar con toda mi alma la bondad de la Providencia, que en su sabia economía, ha puesto el cuidado de nuestra salud física entre las manos de los que nos aman, y el cuidado de nuestra salud moral entre las manos de los que nos aborrecen. «Gracias a tan sabia distribución –continúo monologando interiormente, arrullada siempre por la brisa y el rítmico trotar de los caballos–, el odio viene a ser tan altruista o más altruista que el cariño, el cual andaría siempre vendado a la moda de Cupido, si no fuera por las discretas advertencias que en asuntos de estricta moral suele comunicarle el primero. He aquí, pues, cómo no deben juzgarse las cosas a la ligera, y cómo el odio, a pesar de su mala reputación, es en realidad el despierto centinela que vigila nuestra virtud, la base más sólida sobre la cual se asienta nuestro sentido moral y el semillero donde crecen juntos y entrelazados la pureza y el espíritu de previsión»...
+
+Pero semejantes soliloquios se paralizan inmediatamente en mi cerebro al recordar que esta malhadada propensión a la filosofía es causa de mi desdicha, fuente de mi tristeza, y origen de mi reclusión en San Nicolás, cosa que hasta el presente he sobrellevado con bastante estoicismo. Sí; de no haberme puesto a formular en palabras mis impresiones particulares sobre el pudor y la moral, tía Clara no se habría escandalizado aquel día, ni Abuelita se habría alarmado hasta el punto de decretar mi inmediato destierro fuera de Caracas. Y como tan fatal experiencia no ha caído por fortuna en saco roto, y como ya he visto y palpado que el almacenar ideas propias es cosa tan insensata y peligrosa como el llevar una bomba de dinamita en el bolsillo, rechazo en seguida todo género de filosofías, y me pongo a dialogar con Perucho, quien paso a paso, camina ahora tras de mí, por la estrecha, larga y sombreadísima senda, que se estira y serpentea a la margen izquierda del río.
+
+Cuando llegamos a un tranquilo remanso, en donde el río se abre en dos y le tiende un brazo de agua a la montaña, Perucho acostumbra consultarme:
+
+—¿Nos quedamos aquí en la toma, o seguimos más arriba?
+
+Por regla general yo prefiero quedarme en la toma, porque es allá en donde el río tiene para mí aquel encanto sereno y misterioso. Así, pues, no bien he contestado a la pregunta de Perucho diciendo: «Quedémonos aquí hoy», cuando él, se desmonta de un salto, me ayuda a bajar a mí, y luego de atar los caballos a la sombra de un gran matapalo, comenzamos a buscar asiento brincando por los peñones que están dentro del agua. Después de mucho escoger, acabo siempre por sentarme sobre la peña que ataja la corriente en un pozo, y allí me pongo a contemplar el río, y le miro, le miro, muy fijo y muy de cerca, hasta que poco a poco se va callando el mundo entero de mis pensamientos, olvido las ideas surgidas unos minutos antes, al pausado trotar de mi caballo, se borran unas tras otras las diversas imágenes materiales recogidas en el día, y convertida ya en un pedazo inconsciente de la naturaleza, empiezo a escuchar la voz sencilla y generosa del agua. En ese momento ya no existe para mí, ni Abuelita, ni María Antonia, ni la casa de abajo, ni mi cuarto, ni mis libros, ni mis penas, ni yo misma, porque de tanto mirar el río me parece que también me fui caminando en su corriente, y que junto a las piedras y las arenas del fondo, junto a las frutas caídas y las ramas secas que pasaron flotando, junto al encaje de los árboles, y los azules pedazos de cielo que se reflejan desde arriba, el agua lleva también en sus entrañas este divino y torturante poema de mi amor. Sentada como estoy sobre la roca, en el poblado silencio del paisaje, copio por un instante el alma inmóvil de la piedra, y me quedo tranquila y callada, para que el río al pasar me cante mi poema en sus murmullos y me lo vaya enseñando en su espejo.
+
+Pero semejante estado de arrobamiento dura apenas unos cuantos minutos, porque a su conjuro se despierta de pronto en mí una alegría inexplicable y bulliciosa. Entonces, con gran locuacidad, comienzo a hablar a Perucho, me río sin razón aparente, corro por encima de las peñas, tiro piedrecitas a los árboles y a los peñones del río y se me ocurren los más diversos caprichos. Desde su asiento, Perucho contempla mi alegría con ojos de tímida adoración y a medida que voy inventando mis caprichos, él los adivina todos y todos los realiza al instante para complacerme. Si es una fruta, se sube al árbol y la coge; si es una mariposa de las grandes, corre tras ella y la caza con su sombrero de cogollo levantado en el aire; si es una flor, la corta y me la trae, así haya tenido que descalzarse para subir a los árboles o que meterse en el agua hasta las rodillas para caminar dentro del río.
+
+Un día, tuve la inmensa curiosidad de conocer los frescos y bulliciosos secretos del remanso y quise bañarme. No bien hube formulado tal deseo, cuando Perucho tomó al punto su caballo, bajó hasta la casa, y en menos de veinte minutos, jadeante y sudoroso, cargado de mi paño, mi jabón y mi agua de colonia, estaba ya de regreso en la toma. Muy celoso de que nadie pasara, se fue en seguida a hacer la guardia junto a los caballos, a las puertas de cal y canto, mientras que yo, sola y desnuda, creyendo ser el alma viva del paisaje, me hundía en la ansiada frescura de mi pozo predilecto. Y recuerdo que aquel día, sumergida en el pozo, perdí como nunca la noción de mi propia existencia, porque el rodar del agua me tenía la piel adormecida en no sé qué misteriosa delicia, y porque mis ojos vagando por la altura, olvidados de sí mismos, se habían puesto a interpretar todos los amores de aquella muchedumbre de ramas que se abrazan y se besan sobre su lecho del río.
+
+Es sólo cuando el crepúsculo se apaga ya de un todo, cuando Perucho y yo acostumbramos regresar a la casa. Los caballos entonces, ansiosos como están de verse en la caballeriza, corren al atravesar la sendita del río y vuelan como dos pájaros al pisar los callejones de la vega. Este desenfrenado correr que nos arranca los sombreros y nos despeina los cabellos nos pone también alas de regocijo en el espíritu. Con la inmensa alegría de la carrera, sobre los dos caballos que vuelan unidos por el camino, Perucho y yo levantamos los brazos en el aire para asustar a los bueyes que se fuman su rama de cogollo a la puerta de los ranchos; damos voces a la gente que vemos blanquear en la noche; cantamos juntos a plena voz; y él, puesto de pie sobre los estribos, le contesta en su mismo tono a cuanta pavita o tuqueque se le ocurra graznar escondido en la maraña de las matas. Al oírle, yo me río a carcajadas celebrando el parecido, le aplaudo sus hazañas de jinete, y los dos a la vez, cuando bajamos a lo más hondo del cañaote, fingiendo un prolongado lamento, llamamos al eco que también nos contesta desde las negras encrucijadas del monte.
+
+Estos diarios paseos vespertinos son consoladores como la confesión porque descargan mi alma de su carga de tristeza. El río, con la misericordia de sus matas, sus peñones y sus murmullos, es el confesor que me absuelve todos los días de las negruras que le llevo; él me da consejos de esperanza, y me deja siempre en el espíritu la gracia infinita de la alegría. Yo bendigo a la brisa que me despeina los cabellos; bendigo a mi caballo que corre contra la brisa; y luego de bendecir a la naturaleza entera, también bendigo a Perucho, que es mi escudero y es mi acólito, en estas peregrinaciones sentimentales.
+
+Pero según me fijo ahora, mi gran intimidad con Perucho merece capítulo especial, porque es a un tiempo sencilla y complicada; y porque a la vez que distrae mi preocupación de amor, me hace vivir activamente dentro de ella.
+
+Comencé siendo amiga suya, con un compañerismo muy despreocupado y muy infantil. Me era útil por su agilidad y por su carácter servicial y soñador, siempre dispuesto a complacerme e inventé llevarlo conmigo a mis solitarios paseos, como hubiera podido llevar un gran perro silencioso que anduviera junto a mí sin perturbar mis ensueños con palabras importunas. Pero desde el día en que María Antonia dijo por primera vez aquello de: «¡Qué feas y peligrosas me parecen esas intimidades con los muchachos varones!», sin saber por qué, Perucho comenzó a tener a mis ojos un inmenso interés; su presencia fue para mí la presencia animada del amor, y así como los niños juegan con sus trenes y sus muñecos de juguete disfrazándolos de realidad con la imaginación, yo me puse desde entonces a jugar con Perucho, como si éste fuese mi juguete y también lo disfracé de realidad, porque en mi imaginación se me ocurrió convertirlo en Gabriel. Y naturalmente, dado este punto de vista, Perucho ha adquirido para mí una gran importancia. Él me quiere de veras con su inmensa adoración silenciosa y tímida, y yo, por generosidad hacia él, y por vivir activa dentro de mi amor, mientras sueño apasionadamente con Gabriel, prodigo en miradas y sonrisas a Perucho, esta divina facultad de alegrarnos fácilmente la vida, alegrándola también a los demás, facultad que no todas las mujeres poseen, y que la gente inconsciente llama con desprecio coquetería.
+
+Es pues, gracias a mi gran intimidad con Perucho, como he venido a descubrir que poseo en alto grado esta facultad de la coquetería, que cual madre cariñosa, nos dirige o enseña a caminar por los divinos caminos del amor. Y naturalmente, como en mi fuero interno yo considero que dicha facultad, además de ser una fuente de alegría, es también una prueba de generosidad, no tengo inconveniente ninguno en reconocerla ante mí misma, y reconocer además que estoy satisfechísima de poseerla; y de que cuantos días pasan, deploro más el no haberla descubierto y ejercitado antes con Gabriel... ¡sí!... ¡en vez de aquella necia timidez que me cohibía y me paralizaba en su presencia!... ¡Pero así son estos caprichos del destino!... ¡Y qué maraña de misterios y de sorpresas llevamos todos, Dios mío, dentro del corazón!...
+
+Estoy segura de que si Abuelita, tía Clara, o cualquier otra persona seria y de sólidos principios, leyera lo que acabo de escribir, lo encontraría muy mal y haría unos pronósticos desagradables y ofensivos acerca de mi futura reputación. Pero no estarían en lo cierto. Mis demostraciones o coqueterías hacia Perucho son a mis propios ojos la prueba más palpable y segura de que soy una mujer esencialmente fiel. Sí. A pesar de su indiferencia, y a pesar del abandono en que me tiene, yo no quiero sino a Gabriel, y es segurísimo que de no haberlo conocido nunca, Perucho no habría visto todavía la primera de las amables e insinuantes sonrisas que lo hacen tan feliz.
+
+Esta pequeña experiencia de mi vida, me lleva a considerar que en el amor de nosotras las mujeres, existen siluetas tan invisibles y sublimes, como en el puro y teológico amor de Dios. Por lo que llevo visto, no siempre nos es dado amar en su apariencia sensible al que quisiéramos amar, y es claro, al no poder amar directamente aquello que queremos no nos queda más recurso que amarlo indirectamente en aquello que podemos. Ahora bien: ¿no hay en esta suprema fidelidad al ausente, amado a través de un objeto presente, grandes puntos de contacto con el amor altísimo del asceta que adora esencialmente a Dios, adorando en apariencia una imagen de madera o de yeso? ¿No vibra también en este caso mío el misterio augusto de la intención que todo lo purifica y transforma la burda idolatría en santa y piadosa veneración? Pues bien, todos estos delicados matices existen también en mi alma y gracias a ellos, ante los ojos de mi amor, Perucho no es Perucho, sino la imagen animada que se convierte a ratos en Gabriel por obra y gracia del misterio augusto de la intención. Mi caso es un caso de amor humano, en el cual parecen aliarse todas las sublimes y teológicas sutilezas del amor divino. Y sin embargo, estoy cierta de que elegido juez en el asunto, así fuera Abuelita, Mercedes, o el mismo Gabriel, cometerían la ligereza de fallar injustamente, y es muy probable que me designaran con los epítetos de inconstante, infiel, variable, o cualquier otro desagradable concepto por el mismo estilo. Pero yo, dado semejante caso, también los juzgaría a ellos, como juzgó la Iglesia a aquellos herejes llamados iconoclastas, que en su gran torpeza, jamás pudieron medir el abismo que separa la imagen material de la esencia ideal, y la forma visible, del fondo sublime e invisible.
+
+Finalmente, como resumen o conclusión de todos los anteriores razonamientos declaro: que mi amor hacia Gabriel es cada día más vehemente y más grande; que mis pequeñas demostraciones a Perucho no son sino la manera de expresar exteriormente el culto de este amor que vive y se desborda en mi alma; que poseo del amor en general un concepto muy elevado y algo panteísta, y que, por último, mi sistema de fidelidad espiritual, digan lo que quieran las personas irreflexivas, es mil veces más puro y meritorio que esa fidelidad exterior y corriente, que suelen imponer los hombres, los convencionalismos y las leyes.
+
+Y para demostrar mejor ante mi propia conciencia la verdad de semejantes afirmaciones, y la fidelidad de mi amor hacia Gabriel, voy a transcribir aquí esta pequeña escena ocurrida hace dos tardes junto a la margen del río.
+
+Yo me hallaba sentada como acostumbro en la gran peña que cierra y protege el remanso. Mis pies casi tocaban el agua; me había puesto en el sombrero una rama de trinitaria muy llena de flores, y me entretenía en echar a navegar las cáscaras de unos mamones que, desde la cúspide del árbol, Perucho me había arrojado en la falda. Era un copioso racimo verde que yo desgranaba lentamente. Una vez separado el grano, cortaba en dos la cáscara; despojaba el hueso con mis dientes; despojado ya, lo ponía de nuevo en el cascarón convertido en barca; con cuidado de que no naufragase, lo echaba a flotar en el agua, y al mirarle partir río abajo, me imaginaba ver aquellas embarcaciones funerarias, que allá en la India, tripuladas por un cadáver, descienden solitarias la sagrada corriente del Ganges.
+
+Muy embebida estaba entregada a tan suaves y poéticas consideraciones, mientras que Perucho no se cansaba de correr y deslizarse como una lagartija por entre el laberinto de ramas, hojas y horquetas del gigantesco mamón. De pronto oí un estridente silbido que me hizo levantar la cabeza. Era Perucho que montado a caballo sobre una rama altísima, con los pies descalzos en el aire y las dos manos formando bocina junto a la boca, solicitaba mi atención para gritarme tal y como si se tratase de algo muy indispensable y urgente:
+
+—¡Oye, María Eugenia! ¿Sabes a quién te pareces vista desde aquí arriba? ¡Pues con esa trinitaria en el sombrero, estás igual, pero igualita a la muchacha del cromo de las píldoras de Ross, ese anuncio que hay en la puerta de la botica de la esquina de casa, allá en Caracas!...
+
+Como yo conozco el cromo en cuestión, y la muchacha es en realidad encantadora, semejante apreciación sorprendió mi amor propio en una agradable emboscada, me distrajo de mi melancólica tarea, e iluminó repentinamente mi cerebro con sonrientes y placenteras ideas. La observación de Perucho me resultó mil veces más interesante que si me hubiese comparado con la Venus de Milo, cosa que tal vez habría sonado en mis oídos como un lugar común incapaz de halagar mi vanidad; lo de las píldoras de Ross gritado desde la copa del mamón, me pareció encantador y muy sincero.
+
+Y para recompensar a Perucho de su oportuna galantería, ladeada la cabeza, con la vista hacia lo alto, por entre ramas y hojas le miré largamente, y luego, iluminando mi expresión con una sonrisa que yo juzgué ser la más sugestiva de mi repertorio, le pregunté cariñosa:
+
+—¿Sí?...
+
+Y allá en la altura, tan claro se reflejó en el rostro de Perucho el efecto producido por la sonrisa y por la voz de mi pregunta que pensé inmediatamente:
+
+—¡Así hablaré y así sonreiré a Gabriel cuando lo vea!
+
+Después eché de un golpe al agua el verde racimo de frutas que llevó la corriente; me recosté en la piedra, y comencé a soñar mirando caminar el río.
+
+Como si hubiese tenido la influencia de esas drogas, alucinantes y embriagadoras, el diálogo cortísimo, sostenido con Perucho, despertó en mí el recuerdo de Gabriel tan vivo y tan violento, que lo sentí moverse en el río, en los árboles, en los pájaros, en Perucho, y en todo aquello que se movía y que me rodeaba; lo sentí después dentro de mí, y lo sentí tan hondamente, que tuve la fantasía de escribirle allí mismo, una carta sincera y estrafalaria en donde le contase toda la alegría y todo el suplicio de mi amor...
+
+Y elevé de nuevo la cabeza, volví a mirar a la altura, con mis dos manos formando bocina llamé a Perucho, y lo mismo que él había gritado unos minutos antes, le grité yo a él:
+
+—¡Oye Peruchito! ¡Bájate un momento de esa mata, ve donde los caballos, saca de la silla del mío un libro que tiene adentro lápiz y papel, y me lo traes, que quiero escribir una carta!
+
+Cuando regresó con el libro y el recado de escribir, le recomendé en una amable súplica:
+
+—Ahora te quedas quieto, y no me llames porque me molestarías. Yo no puedo escribir cuando me hablan.
+
+Y sobre la piedra del río, con el libro por cartera, y mis rodillas por escritorio, limando de tiempo en tiempo en una peña vecina la punta de mi lápiz cuando se hacía muy roma, mientras duró la luz del día estuve escribiendo, y escribí febrilmente esta carta, que tiene la loca sinceridad de todas las ardientes y silenciosas cartas de amor que nunca se envían. En ella retraté la suave verdad de la naturaleza que me rodeaba, y dentro de la verdad de la naturaleza, también retraté la verdad de mi alma, con el puro impudor con que nos retrata el agua, y con la fresca desnudez de aquellas piedras que estaban tomando a mi vista su eterno y rumoroso baño de río.
+
+Y es así más o menos como dice la carta que escribí aquella tarde sentada sobre la peña y con mis rodillas de escritorio:
+
+«Gabriel:
+
+«Yo te quiero, porque un día me dijiste con palabras que tú me querías. Te quiero, porque antes de decírmelo con la claridad de las palabras, me lo habías dicho ya con la claridad de tus ojos que son para mi alma las dos lámparas siempre encendidas que titilan a lo lejos en su noche. Te quiero, porque tu recuerdo está cerrado dentro de mi memoria, y ella lo guarda en silencio con la sumisión fragante y muda con que el cofre de sándalo guarda la joya. Te quiero, porque vives y te mueves en mí, tan animado y tan hermoso como si yo fuera el espejo inmóvil y tú fueras la viva imagen que en él se asoma y se contempla. Te quiero, porque mi alma se ha asomado también sobre la tuya, y al mirarse a sí misma, se ha estremecido de sorpresa como la cordillera sedienta que por primera vez mira blanquear su vellón en el remanso.
+
+«Gabriel: Tu amor se ha venido conmigo, y es en tu ausencia el pajarillo cantor que viaja prisionero dentro de su jaula, brinca bullicioso en la estrechez de los barrotes y canta en sus gorjeos: ¡Ah! ¡si viniera algún día la mano poderosa que me abriera la jaula!
+
+«Tu amor, Gabriel, se ha venido conmigo, se ha traído al destierro toda su cosecha de rosas, ha tejido con ellas una blanca guirnalda, y la tiene clavada en mi corazón con los mil clavos agudos de sus espinas. Las espinas se han teñido de sangre, y mi corazón las bendice, las acoge en su blando regazo, y bajo los mil aguijones, dolorido y embriagado de perfume, se ha quedado inmóvil, no fueran a deshojarse las rosas.
+
+«Gabriel: con la aureola de tu amor sobre la frente, caminando por la aridez de mi camino, te miré venir hacia mí, y tú eres desde entonces el dulce Mesías de mi alma. Las huellas de tus sandalias al pisar sobre el polvo, me han trazado una senda de esperanza, y corro por la senda en pos de ti; voy rendida y sedienta, pero voy animosa, porque pienso en las delicias del vino de Caná, y espero saciar mi hambre en la abundancia milagrosa de los peces y los panes.
+
+«Tú eres el dulce Mesías de mi alma, Gabriel, y tu amor es el agua del Jordán que me ha redimido para siempre de las prisiones del Limbo. En la abstinencia y en la soledad de mi desierto, yo bendigo tus dos manos tan generosas y tan buenas como las manos de Jesús porque ellas se extendieron un día sobre mi frente, y abrieron a la vida estos dos ojos que estaban cerrados y a oscuras como los ojos del ciego de nacimiento.
+
+«Tú eres dulce Mesías de mi alma, Gabriel, y yo bendigo la misericordia de tus pies que te trajeron a mí. Como los pies ungidos de Jesús le llevaron a la casa de Jairo, así también los tuyos te entraron a la casa de mi alma, la hallaste pálida y dormida en el blanco sudario de su inocencia y también le dijiste: ‘¡Levántate!’ Pero tú, Gabriel, no has tenido para el milagro la piedad generosa de Jesús, porque a mis ojos abiertos les has quitado el sol que ellos anhelan, y a mi alma despierta la has dejado sola y encerrada en su casa.
+
+«Gabriel: Tu amor se ha desposado con mi alma, vive junto a ella y con ella se agita a todas horas en la prisión de mi cuerpo. Cuando acerco mis dedos a las sienes escucho el revoltoso aleteo de tu amor dentro de mí, y como el pájaro prisionero a quien dejaron abierta la puertecilla de su jaula, lo siento posarse muchas veces en la puertecilla abierta de mis ojos, oigo el rasguear de sus alas en el aire, y un segundo después lo miro volar arrogante y feliz por la libertad del campo.
+
+«Sí, Gabriel; cuando estoy sentada en mi peña del río desde la cual te escribo ahora, tu amor revolotea a mi alrededor por todas partes. Es él quien canta para mí la canción del agua sobre las piedras; él quien corriendo a toda prisa se lleva el río de la mano, en una carrera loca, llena de tropezones; él quien le pone al agua esos labios frescos y turbadores que algunas veces se suben a la peña para besarme furtivamente los pies, y a su contacto mi cuerpo entero se estremece de sorpresa y de placer; él quien se arregla tan lindo y con su sombrero de paja lleno de flores, se asoma en el pozo, me saluda, y me remeda tan gracioso, cuando yo, sedienta de mirarlo, me inclino sobre el río para buscarlo en el agua; es él quien se sube a las matas, y me llama desde arriba cabeceándose en las ramas; él quien se sienta entre las dos alas de la brisa para besarme los ojos y acariciarme los cabellos cuando volando sobre la alegría de mi caballo a la hora del crepúsculo vuelvo a la casa; es él quien se esconde por las oscuras encrucijadas, y con la voz del eco me contesta si yo lo imploro a gritos desde la hondonada de los cañaotes; y es él quien se viste de negro, se asoma a los ojos de mi primo Perucho, y animado y brillante, me llama y me hace señas de amor, como la madre a su niño, para que yo le sonría.
+
+«Gabriel: Sentada en la peña del río te escribo hoy porque quiero contarte que sobre la blanca belleza de mi cuerpo he visto florecer de pronto la inmensa abundancia de la primavera. Agobiada de flores, con el regalo de mi amor entre los brazos yo te espero impaciente noche y día, y en la esperanza de mi espera, soy en tu ausencia, como un oasis perdido en la mitad de un desierto.
+
+«Junto al borde del camino, con mi regalo de amor entre los brazos, te espero Gabriel todos los días, y mi amor al presentirte abre sus ojos, brinca de alegría y quiere salirse de mis brazos para correr a tu encuentro, como el cabritillo travieso que ha escuchado a lo lejos la esquila de su madre.
+
+«Gabriel: te escribo porque no puedo ya más con la carga de mi secreto, y para que vengas a llevarla conmigo quiero decirte que tu amor es para mí la hermosísima canción de un Cantar de mis Cantares... Tu boca que es tan sabia y tan gloriosa como la boca de Salomón, se acerca muchas veces junto a mí, me roza los oídos con su aliento, y me lo canta muy bajo para que yo lo escuche y nadie más pueda oírlo.
+
+«Como la Sulamita, Gabriel, yo también tengo aprendidas las palabras del Cantar, y como ella te llamo a todas horas en mi soledad y en mi canción te digo: ‘Cuando el día refresque y las sombras desciendan, vuelve, vuelve, Amado mío. Hermoso mío, como las corzas y los gamos en el monte de Betel’... Pero tú no me escuchas, Gabriel; la voz que canta mi cantar se ha perdido muchas veces en la oscuridad de la noche y porque quiero levantarla más y más hasta que llegue a la cumbre de tus oídos, te la envío volando presa entre las alas de esta carta.
+
+«Gabriel: en el desierto abrasador de tu ausencia, eres tú mi glorioso Salomón; y yo soy tu rendida Sulamita. Tendida estoy sobre el ardor de la arena, y cubierta con mis joyas y abrasada por la sed, vigilo atentamente el horizonte, porque yo quiero ser la primera en ver lucir a lo lejos el brillo de tu palanquín, mi triunfante Salomón.
+
+«Yo soy tu amorosa Sulamita, Gabriel y para la fiesta del amor con que te aguardo, he vestido ya mi lindo cuerpo con la pompa de la desposada en el palacio del rey.
+
+«Y soy tu doliente Sulamita, Gabriel, y para el suplicio resignado de la espera, he vestido también mi callado tormento con la humildad dolorosa de la hierba que por las noches va pisando mi caballo en su carrera.
+
+«Gabriel: Con la pompa de la desposada y con la humildad de la hierba yo soy tu Sulamita y te espero noche y día, mi glorioso Salomón. Oye, oye bien esta voz que te llama en mi carta, amado mío, hermoso mío, baja a toda prisa como las corzas y los gamos del monte de Betel, y ven, ven a enseñar con tu boca, al silencio de la mía, la hermosísima canción del Cantar de tus Cantares!»
+
+.....
+
+Y una vez terminada tan estrambótica carta, me quedé un largo rato inmóvil sobre la peña. La falta de luz me impedía leer lo escrito, y comencé a repasarlo con la memoria, mientras que con los ojos veía parpadear los cocuyos y brillar de trecho en trecho la cinta bruñida del río. Unida a mi quietud y a mi silencio, la oscuridad poco a poco se fue haciendo más densa, hasta que al fin, se mezcló con las piedras, se fundió completamente con el agua, me estrechó más de cerca; se abrazó conmigo; y yo sentí en mis brazos no sé si un frío que parecía miedo o si un miedo delicioso y cosquilleante que parecía frío. Por un instante, me creí enteramente sola con la oscuridad, y tuve un gran sobresalto, cuando cerca de mí la voz de Perucho dijo:
+
+—¿Y cuándo nos vamos por fin, María Eugenia?
+
+Al oírle recogí con avaricia y con susto los tres pliegos escritos que blanqueaban sobre mi falda como tres claridades de luna; los escondí en mi seno; de la mano de Perucho saltando de piedra en piedra atravesé un pedazo de río, y los dos juntos nos fuimos en seguida a tomar los caballos, que piafaban impacientes bajo la noche profunda del matapalo.
 
 
+Ya en la casa, durante la comida, mientras todos hablaban yo no decía una sola palabra: con la mano apoyada en el pecho, hacía crujir en secreto, contra la piel de mi seno, los tres pliegos escritos. Abstraída en lo más hondo de mí, los contemplaba abiertos sobre mi alma, y los leía mentalmente. Me sentía feliz, aislada de todos, y en la sola compañía de mi carta. Estaba orgullosa por haberla escrito; orgullosa por haberme atrevido a escribirla, y pensaba con ansiedad y alegría en el efecto que iba a producir su lectura.
 
+Pero un pequeño incidente de la conversación, no sé si por desgracia o por suerte, vino a sacarme de mi lírico ambiente al colocarme de golpe en un punto de vista absolutamente contrario al exaltado idealismo que había dictado mi carta.
 
-Ya en la casa, durante la comida, mientras todos hablaban yo no decía una
-sola palabra: con la mano apoyada en el pecho, hacía crujir en secreto, contra
-la piel de mi seno, los tres pliegos escritos. Abstraída en lo más hondo de
-mí, los contemplaba abiertos sobre mi alma, y los leía mentalmente. Me
-sentía feliz, aislada de todos, y en la sola compañía de mi carta. Estaba orgu-
-llosa por haberla escrito; orgullosa por haberme atrevido a escribirla, y pen­
-saba con ansiedad y alegría en el efecto que iba a producir su lectura.
- Pero un pequeño incidente de la conversación, no sé si por desgracia o por
-suerte, vino a sacarme de mi lírico ambiente al colocarme de golpe en un
-punto de vista absolutamente contrario al exaltado idealismo que había
-dictado mi carta.
- Y fue que Perucho, quien, contra mi parecer, suele comentar en la mesa
-las peripecias de nuestras excursiones, se puso a referir lo acontecido en la
-tarde y dijo con un entusiasmo romántico, cuyo verdadero sentido casi nadie
-interpretó:
- María Eugenia hoy se prendió en el sombrero una rama de trinitaria
-que yo mismo le corté con mi machete al pasar a caballo por la enredadera
-del trapiche viejo. Con el sombrero llenito de flores se sentó sobre un peñón
-muy grande que está dentro del río, más arriba de la toma, y se puso a escri­
- bir una carta. Yo estaba montado en el copo del mamón, de donde se abarca
-un pedazo grande de río, y ella, sentada en el medio del agua, escribiendo en
-la peña parecía desde arriba como cosa de cuadro. ¡Si yo supiera pintar,
-María Eugenia, me subiría con pinceles y todo al copo del mamón y te hacía
-un cuadro así! . . .
- Y fue tan vehemente el entusiasmo descriptivo de Perucho, que los ojos
-de María Antonia, enormes y brillantísimos, lo miraron un instante y sin que
-me quepa ni asomo de duda, comentaron indignados el proyecto del cuadro
-con esta breve apreciación:
- ¡¡Imbécil!!
- Luego, los mismos ojos, enormes y brillantes, se fijaron junto a ellos en
- tío Eduardo, y dijeron, ayudados ahora por una fingida media voz que se oyó
-perfectamente:
- Comprendo que se vayan solos a pasear aunque acaben con las bestias,
-y destrocen las sillas y los aparejos de montar; pero que se bajen de los caba­
-llos, y se queden de su cuenta en el río la tarde entera, me parece sumamente
-impropio y no me explico cómo tú lo permites. ¿Qué necesidad hay de ir a
- escribir cartas a la toma? ¡Creo que aquí, en la casa, tenemos mesas y escri­
- torios de sobra!
- Y como tío Eduardo no podía contestar nada, porque en aquel instante
- estaba comiendo y tenía la boca llena, María Antonia, impaciente, se dirigió
- a Perucho, y le dijo, esta vez en tono claro y tonante:
- ¡No es posible que continúes en esa ociosidad, Pedro José! No piensas
- sino en andar suelto como un bandido por esos campos. ¡No estudias, no
- haces nada! . . . Ya que tanto te gusta subirte a los árboles, ensillar los caba­
- llos, y hacer oficios de peón, mañana por la tarde vas a ayudarme a poner un
- alambrado nuevo en el corral de las gallinas. El que tienen está roto y de
- noche se meten los rabopelados.
- Tía Clara objetó:
- No son los rabopelados los que se llevan las gallinas; estoy casi segura
- de que es gente que viene de noche y se las roba! ¡Me parece un gasto inútil
- cambiar el alambrado del gallinero!
- Y mientras tanto, en el extremo opuesto de la mesa, Abuelita, que no oía
- la conversación del otro extremo, comentó la descripción de Perucho, dicien­
- do muy alarmada:
- ¡Pero, María Eugenia, mi hija, qué extravagancia! ¿Por qué has de ir
- a la toma a escribir cartas? ¿Tú no sabes que el río está lleno de mosquitos
- malignos? ¡Puedes coger una fiebre! ¡No vuelvas a hacerlo más! Cuando
- quieras escribir, escribe aquí, en la casa, como hacemos todos.
- Yo no contesté ni una palabra, pero la carta que crujía aún bajo mi mano,
- escondida en el seno, profanada ya por el hálito de la realidad, acababa de
- expirar dentro de mi alma. Destruido el misterio quedó destruido el encanto
- atrevido del proyecto, y cuanto había escrito en la tarde, me pareció ahora
- completamente ridículo. A l conjuro de las palabras de María Antonia, tía
- Clara y Abuelita, había huido de mí el espíritu de Don Quijote, y por lo visto,
-ya no tenía sino a Sancho, sentado en un extremo de mi alma, burlándose con
-razón de tan disparatada carta.
- Desde mi decepción, en medio de tanta ruina, miré a Perucho con intencio­
-nes de hacerle un reproche, pero como yo, él tampoco hablaba ya, ni me veía.
-Había comprendido su indiscreción, y mortficado, con la cabeza baja, se ocu­
-paba de hacer dibujos sobre el mantel, apoyando de plano los cuatro dientes
-de su tenedor.
- No bien terminó la comida, di a todos las buenas noches y me retiré a mi
-cuarto. Una vez en él, tomé de mi seno los tres pliegos borroneados con lápiz,
-y los abrí dentro del círculo íntimo y familiar, que todas las noches me dibuja
-la lámpara en la mesa. Vi que las palabras de mi carta se alineaban indecisas
-y mal escritas sobre las rayas derechas del papel, me pareció que estaban
-torcidas, porque iban agobiadas de extravagancia, y consideradas así, en la
-claridad de la luz física, me resultaron mil veces más ridiculas de lo que me
-habían parecido antes, en la comida, vistas y juzgadas bajo la luz incierta de la
-imaginación . . . Con los pliegos arrugados, tendidos bajo mis ojos que ya no
-los miraban, me quedé reflexionando mucho rato . . . ¡Qué idea había tenido
-de escribir semejante carta! . . . ¡Ah! ¡qué habría dicho Gabriel si hubiera
-cometido la locura de enviársela! . . . Sin duda ninguna le habría parecido
-absurda, atrevida, «impropia» para usar la palabra clásica de María Antonia.
- ¡Sí! . . . sobre todo aquella idea pretenciosa y ridicula de compararme con la
-Sulamita . . . ¡Ni se acordaría ya Gabriel del Cantar de los Cantares! . . .
- Y formuladas dichas consideraciones, inmóvil, con los codos apoyados en
-la mesa, volví a contemplar un rato aquellos borroneados pliegos, hasta que al
-fin, por rebeldes contra las leyes que rigen toda carta, por indiscretos, y por
-extravagantes, los sentencié a los tres a convertirse en montón de pedacitos
-ilegibles para quemarlos luego en una pira, como a obra de insurrección y de
-herejía. Pero en el instante mismo de rasgaslos, me acordé del amor con que
-los había escrito dos horas antes, y les revoqué la sentencia . . . Me bastó el
-arrugarlos con gran fuerza entre las manos, hasta hacer de ellos una bola de
-papel, y convertidos así, en el símbolo incierto de mi propio destino, los eché
-a rodar a lo más hondo de la honda gaveta de mi mesa., Luego cerré la gaveta,
-y en el secreto rincón de una repisa, escondí la llave . . .
- Pero no en balde se ha dicho que el espíritu aventurero de Don Quijote
-es inmortal, y es tenaz el eterno renacer de la vida.
- Y fue que una hora después, ya en mi cama, apagada la luz y cerrados los
-ojos, me parecía sentir aún en los oídos aquellas acertadas palabras llenas de
-positivismo, que tan a tiempo me habían despertado a la sana verdad de las
-cosas: «¿Qué necesidad hay de ir a escribir cartas a la toma?» . . . «Vas a
-ayudarme a poner un alambrado nuevo en el corral de las gallinas» . . . «Me
-parece un gasto inútil cambiar el alambrado del gallinero» . . . «El río está
-lleno de mosquitos malignos, cuando quieras escribir, escribe aquí, en la casa,
-como hacemos todos» . . . Y sin embargo, mientras mi imaginación se ocupaba
- en reproducir tan sensatas y prudentes expresiones, en lo más elevado de mi
-alma, algo apaleado y maltrecho, pero siempre animoso, apareció de nuevo
-el espíritu emprendedor de Don Quijote. Y por lo visto, de la lucha sostenida
-por él contra las sensatas expresiones, resultó lo siguiente:
- Por una parte, acepté completamente el principio indiscutible de que una
-señorita que se respeta a sí misma no tiene el derecho de dirigir cartas a un
-hombre que no es su padre, su hermano, su marido ni su novio. Que la idea
-de escribir semejante carta, no se me había ocurrido sentada en una silla,
-delante de una mesa de caoba y frente a una pared encalada, sino que se
-me había ocurrido en el río, bajo los árboles y el cielo, razón por la cual
-debería haber rechazado inmediatamente esta idea, descabelladísima, como
-casi todas las cosas que nos insinúa la naturaleza, que es profundamente inmo­
-ral, puesto que desdeña las más elementales conveniencias, y se burla a todas
-horas de los sanos principios sociales. Aceptadas tan cuerdas razones, mi
-buen juicio se regocijó muchísimo, y mi conciencia respiró satisfecha.
- Pero, por otro lado, este espíritu andante que llevamos todos dentro del
-alma, se erguía tentador y me decía al oído: «¿Cómo es posible que renun­
-cies a tu amor?» . . . «¿No ves tú que al saber que lo quieres, Gabriel que
-te adora, dejará todo por ti?» . . . «Tal vez sea el río quien tenga razón: ¡mira
-que es la locura madre de lo sublime!».
- Hasta que por fin, de semejante controversia, logré sacar en claro que el
-mal de las cosas no está en su fondo, sino en su forma, y que por lo visto todo
-pecado es un cuerpo anguloso, velludo, y deforme, que puede resultar muy
-hermoso y lleno de dignidad si se le sabe revestir de un traje adecuado. Resol­
-ví, pues, cambiar las apariencias de mi proyecto que resultaba «impropio» y
-ridículo en su traje de carta, y determiné encerrarlo en un traje de versos,
-los cuales haría llegar indirectamente a manos de Gabriel. De esta manera,
-diciendo en sustancia lo mismo que decía la carta, mis ideas no correrían los
-riesgos de faltar a las conveniencias ni de caer en el ridículo.
- Casualmente, la víspera en la tarde había terminado de leer las obras de
-Shakespeare, y tenía decidido devolvérselas a Gabriel, porque no era seguro
-que me las hubiese ofrecido de regalo. Como en el fondo yo creo poseer
-ciertas disposiciones poéticas, me gusta hacer versos y los hago de tiempo
-en tiempo, aunque jamás los haya mostrado a nadie; la otra noche en mi
-cama, abandonada la idea de la carta, ya dispuesta a convertirla en poesía,
-me dije con entusiasmo de amante y de artista, que puliendo y trabajando
-mucho podría tal vez describir mi amor, describiendo el amor de alguna triste
-heroína de Shakespeare, y que solamente así, en un intencionado comentario
-escrito al margen de un drama, era como podía mostrar a Gabriel, la verdad
-entera de mi alma. Semejante proyecto fue tomando calor, hasta encender
-completamente mi optimismo. Encontré deliciosa la idea de devolver el libro
-con mi verso escondido en él. Era como si mandase a Gabriel, velado y tem­
-bloroso, el tímido regalo de mí misma. Entre mis planes estaba el poner
- a Mercedes en el secreto, a fin de que ella, con aquel tacto suyo tan exquisito
-y tan sabio, advirtiera a Gabriel de la sorpresa.
- Y dando vueltas y más vueltas en la cama, después de mucho escoger,
-decidí ocultarme tras la imagen de una Julieta que asomada a su balcón, espe­
-rase indefinidamente la cita de un Romeo que no llega. En la oscuridad,
-rimando sobre las sábanas con la punta de los dedos, empecé a contar las
-sílabas de los cuartetos hasta que en plena fiebre de inspiración, me levanté
-de la cama, me envolví en mi kimono, encendí mi lámpara, y luego de mucho
-borrar y mucho cambiar, hacia las altas horas de la madrugada, tenía hecho
-este soneto:
+Y fue que Perucho, quien, contra mi parecer, suele comentar en la mesa las peripecias de nuestras excursiones, se puso a referir lo acontecido en la tarde y dijo con un entusiasmo romántico, cuyo verdadero sentido casi nadie interpretó:
 
- «E L BALCÓN DE JU L IE T A »
+—María Eugenia hoy se prendió en el sombrero una rama de trinitaria que yo mismo le corté con mi machete al pasar a caballo por la enredadera del trapiche viejo. Con el sombrero llenito de flores se sentó sobre un peñón muy grande que está dentro del río, más arriba de la toma, y se puso a escribir una carta. Yo estaba montado en el copo del mamón, de donde se abarca un pedazo grande de río, y ella, sentada en el medio del agua, escribiendo en la peña parecía desde arriba como cosa de cuadro. ¡Si yo supiera pintar, María Eugenia, me subiría con pinceles y todo al copo del mamón y te hacía un cuadro así!...
 
- ¡Qué larga es ya mi espera! . . . En la noche sombría
- De mi sed infinita, sobre el camino oteo
- Por ver si antes que alumbre su luz el nuevo día
- En mi balcón florece tu escala, mi Romeo.
- Pero ¡nada!. . . no llegas, y en mi melancolía
- Sangrando entre las sombras, tu sombra es lo que veo.
- ¿Qué Teobaldo te ha herido? . . . ¿Quién cortó la alegría
- De tus alas abiertas, amor de mi Romeo?
- Ya la Luna, la sabia, con su advertencia fría,
- Me has dicho compasiva: «¿No esperes a los muertos/». . .
- Pero no he de cerrar mi balcón todavía.
- Te aguardaré hasta el alba, y ya el alba encendida
- Buscaré tu cadáver, y entre sus labios yertos
- con mi boca en tu boca, encenderé tu vida . . .
- Terminado el soneto, lo copié con letra visible al final del «Romeo y
-Julieta» y volví a acostarme.
- A l día siguiente, muy de mañana, hice un paquete con los libros de Shake­
-speare, puse encima de todos el volumen que más me interesaba y lo remití
-directamente a Gabriel. Luego, escribí una carta confidencial a Mercedes,
-donde le explicaba mi proyecto, y le insinuaba que me ayudara en él. No
-bien recibió la carta, Mercedes me llamó por teléfono y en la conversación
-me dijo:
- Gabriel no está en Caracas, ma chérie . . . ¿Por qué le devolviste esos
-libros? . . . ¡Si te los había mandado de regalo! . . . Estoy cierta, certísima,
-porque él mismo me lo dijo . . .Y dime: ¿tienes mucho interés en que le
-hable de ese comentario tuyo? . . .
- Yo no sé lo que contesté, ni lo que dije luego, sólo recuerdo que un rato
-después de haber dejado el teléfono, me sentía agobiada por una extraña
-pesadumbre, avergonzada de haber escrito comentario ninguno; rotas todas
-mis esperanzas; humillada, tristísima . . . Recordé que Mercedes, siempre tan
- insinuante, hacía dos o tres días ya, que al hablar por teléfono, evadía el
-nombrar a G abriel. . . Aquel silencio suyo me había irritado hasta entonces,
-pero ahora . . . ahora . . . en mi horrible pesimismo me parecía comprender . . .
- Y fue tan intensa la decepción que experimenté luego de hablar a Merce­
-des, me sentí tan agobiada y tan sola, que caminando al azar sin saber adonde
-iba, llegué hasta el borde del estanque, me acosté sobre la hierba a la sombra
-de los sauces llorones, pensé con envidia en el silencio eterno de los cemente­
-rios y fingiéndome muerta, inmóvil bajo los sauces, con pañuelos de sombra
-y de sol sobre los ojos, me lloré un largo rato a mí misma . . .
+Y fue tan vehemente el entusiasmo descriptivo de Perucho, que los ojos de María Antonia, enormes y brillantísimos, lo miraron un instante y sin que me quepa ni asomo de duda, comentaron indignados el proyecto del cuadro con esta breve apreciación:
 
+—¡¡Imbécil!!
+
+Luego, los mismos ojos, enormes y brillantes, se fijaron junto a ellos en tío Eduardo, y dijeron, ayudados ahora por una fingida media voz que se oyó perfectamente:
+
+—Comprendo que se vayan solos a pasear aunque acaben con las bestias, y destrocen las sillas y los aparejos de montar; pero que se bajen de los caballos, y se queden de su cuenta en el río la tarde entera, me parece sumamente impropio y no me explico cómo tú lo permites. ¿Qué necesidad hay de ir a escribir cartas a la toma? ¡Creo que aquí, en la casa, tenemos mesas y escritorios de sobra!
+
+Y como tío Eduardo no podía contestar nada, porque en aquel instante estaba comiendo y tenía la boca llena, María Antonia, impaciente, se dirigió a Perucho, y le dijo, esta vez en tono claro y tonante:
+
+—¡No es posible que continúes en esa ociosidad, Pedro José! No piensas sino en andar suelto como un bandido por esos campos. ¡No estudias, no haces nada!... Ya que tanto te gusta subirte a los árboles, ensillar los caballos, y hacer oficios de peón, mañana por la tarde vas a ayudarme a poner un alambrado nuevo en el corral de las gallinas. El que tienen está roto y de noche se meten los rabopelados.
+
+Tía Clara objetó:
+
+—No son los rabopelados, los que se llevan las gallinas; estoy casi segura de que es gente que viene de noche y se las roba. ¡Me parece un gasto inútil cambiar el alambrado del gallinero!
+
+Y mientras tanto, en el extremo opuesto de la mesa, Abuelita, que no oía la conversación del otro extremo, comentó la descripción de Perucho, diciendo muy alarmada:
+
+—¡Pero, María Eugenia, mi hija, qué extravagancia! ¿Por qué has de ir a la toma a escribir cartas? ¿Tú no sabes que el río está lleno de mosquitos malignos? ¡Puedes coger una fiebre! ¡No vuelvas a hacerlo más! Cuando quieras escribir, escribe aquí, en la casa, como hacemos todos.
+
+Yo no contesté ni una palabra, pero la carta que crujía aún bajo mi mano, escondida en el seno, profanada ya por el hálito de la realidad, acababa de expirar dentro de mi alma. Destruido el misterio quedó destruido el encanto atrevido del proyecto, y cuanto había escrito en la tarde, me pareció ahora completamente ridículo. Al conjuro de las palabras de María Antonia, tía Clara y Abuelita, había huido de mí el espíritu de Don Quijote, y por lo visto, ya no tenía sino a Sancho, sentado en un extremo de mi alma, burlándose con razón de tan disparatada carta.
+
+Desde mi decepción, en medio de tanta ruina, miré a Perucho con intenciones de hacerle un reproche, pero como yo, él tampoco hablaba ya, ni me veía. Había comprendido su indiscreción, y mortificado, con la cabeza baja, se ocupaba de hacer dibujos sobre el mantel, apoyando de plano los cuatro dientes de su tenedor.
+
+No bien terminó la comida, di a todos las buenas noches y me retiré a mi cuarto. Una vez en él, tomé de mi seno los tres pliegos borroneados con lápiz, y los abrí dentro del círculo íntimo y familiar, que todas las noches me dibuja la lámpara en la mesa. Vi que las palabras de mi carta se alineaban indecisas y mal escritas sobre las rayas derechas del papel, me pareció que estaban torcidas, porque iban agobiadas de extravagancia, y consideradas así, en la claridad de la luz física, me resultaron mil veces más ridículas de lo que me habían parecido antes, en la comida, vistas y juzgadas bajo la luz incierta de la imaginación... Con los pliegos arrugados, tendidos bajo mis ojos que ya no los miraban, me quedé reflexionando mucho rato... ¡Qué idea, había tenido de escribir semejante carta!... ¡Ah! ¡qué habría dicho Gabriel si hubiera cometido la locura de enviársela!... Sin duda ninguna le habría parecido absurda, atrevida, «impropia» para usar la palabra clásica de María Antonia. ¡Sí!... sobre todo aquella idea pretenciosa y ridícula de compararme con la Sulamita... ¡Ni se acordaría ya Gabriel del Cantar de los Cantares!...
+
+Y formuladas dichas consideraciones, inmóvil, con los codos apoyados en la mesa, volví a contemplar un rato aquellos borroneados pliegos, hasta que al fin, por rebeldes contra las leyes que rigen toda carta, por indiscretos, y por extravagantes, los sentencié a los tres a convertirse en montón de pedacitos ilegibles para quemarlos luego en una pira, como a obra de insurrección y de herejía. Pero en el instante mismo de rasgaslos, me acordé del amor con que los había escrito dos horas antes, y les revoqué la sentencia... Me bastó el arrugarlos con gran fuerza entre las manos, hasta hacer de ellos una bola de papel, y convertidos así, en el símbolo incierto de mi propio destino, los eché a rodar a lo más hondo de la honda gaveta de mi mesa. Luego cerré la gaveta, y en el secreto rincón de una repisa, escondí la llave...
+
+Pero no en balde se ha dicho que el espíritu aventurero de Don Quijote es inmortal y es tenaz como el eterno renacer de la vida.
+
+Y fue que una hora después, ya en mi cama, apagada la luz y cerrados los ojos, me parecía sentir aún en los oídos aquellas acertadas palabras llenas de positivismo, que tan a tiempo me habían despertado a la sana verdad de las cosas: «¿Qué necesidad hay de ir a escribir cartas a la toma?»... «Vas a ayudarme a poner un alambrado nuevo en el corral de las gallinas»... «Me parece un gasto inútil cambiar el alambrado del gallinero»... «El río está lleno de mosquitos malignos, cuando quieras escribir, escribe aquí, en la casa, como hacemos todos»... Y sin embargo, mientras mi imaginación se ocupaba en reproducir tan sensatas y prudentes expresiones, en lo más elevado de mi alma, algo apaleado y maltrecho, pero siempre animoso, apareció de nuevo el espíritu emprendedor de Don Quijote. Y por lo visto, de la lucha sostenida por él contra las sensatas expresiones, resultó lo siguiente:
+
+Por una parte, acepté completamente el principio indiscutible de que una señorita que se respeta a sí misma no tiene el derecho de dirigir cartas a un hombre que no es su padre, su hermano, su marido ni su novio. Que la idea de escribir semejante carta, no se me había ocurrido sentada en una silla, delante de una mesa de caoba y frente a una pared encalada, sino que se me había ocurrido en el río, bajo los árboles y el cielo, razón por la cual debería haber rechazado inmediatamente esta idea, descabelladísima, como casi todas las cosas que nos insinúa la naturaleza, que es profundamente inmoral, puesto que desdeña las más elementales conveniencias, y se burla a todas horas de los sanos principios sociales. Aceptadas tan cuerdas razones, mi buen juicio se regocijó muchísimo, y mi conciencia respiró satisfecha.
+
+Pero, por otro lado, este espíritu andante que llevamos todos dentro del alma, se erguía tentador y me decía al oído: «¿Cómo es posible que renuncies a tu amor?»...«¿No ves tú que al saber que lo quieres, Gabriel que te adora, dejará todo por ti?»...«Tal vez sea el río quien tenga razón: ¡mira que es la locura madre de lo sublime!».
+
+Hasta que por fin, de semejante controversia, logré sacar en claro que el mal de las cosas no está en su fondo, sino en su forma, y que por lo visto todo pecado es un cuerpo anguloso, velludo, y deforme, que puede resultar muy hermoso y lleno de dignidad si se le sabe revestir de un traje adecuado. Resolví, pues, cambiar las apariencias de mi proyecto que resultaba «impropio» y ridículo en su traje de carta, y determiné encerrarlo en un traje de versos, los cuales haría llegar indirectamente a manos de Gabriel. De esta manera, diciendo en sustancia lo mismo que decía la carta, mis ideas no correrían los riesgos de faltar a las conveniencias ni de caer en el ridículo.
+
+Casualmente, la víspera en la tarde había terminado de leer las obras de Shakespeare, y tenía decidido devolvérselas a Gabriel, porque no era seguro que me las hubiese ofrecido de regalo. Como en el fondo yo creo poseer ciertas disposiciones poéticas, me gusta hacer versos y los hago de tiempo en tiempo, aunque jamás los haya mostrado a nadie; la otra noche en mi cama, abandonada la idea de la carta, ya dispuesta a convertirla en poesía, me dije con entusiasmo de amante y de artista, que puliendo y trabajando mucho podría tal vez describir mi amor, describiendo el amor de alguna triste heroína de Shakespeare, y que solamente así, en un intencionado comentario escrito al margen de un drama, era como podía mostrar a Gabriel, la verdad entera de mi alma. Semejante proyecto fue tomando calor, hasta encender completamente mi optimismo. Encontré deliciosa la idea de devolver el libro con mi verso escondido en él. Era como si mandase a Gabriel, velado y tembloroso, el tímido regalo de mí misma. Entre mis planes estaba el poner a Mercedes en el secreto, a fin de que ella, con aquel tacto suyo tan exquisito y tan sabio, advirtiera a Gabriel de la sorpresa.
+
+Y dando vueltas y más vueltas en la cama, después de mucho escoger, decidí ocultarme tras la imagen de una Julieta que asomada a su balcón, esperase indefinidamente la cita de un Romeo que no llega. En la oscuridad, rimando sobre las sábanas con la punta de los dedos, empecé a contar las sílabas de los cuartetos hasta que en plena fiebre de inspiración, me levanté de la cama, me envolví en mi kimono, encendí mi lámpara, y luego de mucho borrar y mucho cambiar, hacia las altas horas de la madrugada, tenía hecho este soneto:
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;_EL BALCÓN DE JULIETA_  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;_¡Qué larga es ya mi espera!... En la noche sombría_  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;_De mi sed infinita, sobre el camino oteo,_  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;_Por ver si antes que alumbre su luz el nuevo día_  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;_En mi balcón florece tu escala, mi Romeo._  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;_Pero ¡nada!... no llegas, y en mi melancolía_  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;_Sangrando entre las sombras, tu sombra es lo que veo._  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;_¿Qué Teobaldo te ha herido?... ¿Quién cortó la alegría_  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;_De tus alas abiertas, amor de mi Romeo?_  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;_Ya la Luna, la sabia, con su advertencia fría,_  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;_Me ha dicho compasiva: «¡No esperes a los muertos!»..._  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;_Pero no he de cerrar mi balcón todavía._  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;_Te aguardaré hasta el alba, y ya el alba encendida_  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;_Buscaré tu cadáver, y entre sus labios yertos_  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;_con mi boca en tu boca, encenderé tu vida..._  
+
+Terminado el soneto, lo copié con letra visible al final del *Romeo y Julieta* y volví a acostarme.
+
+Al día siguiente, muy de mañana, hice un paquete con los libros de Shakespeare, puse encima de todos el volumen que más me interesaba y lo remití directamente a Gabriel. Luego, escribí una carta confidencial a Mercedes, donde le explicaba mi proyecto, y le insinuaba que me ayudara en él. No bien recibió la carta, Mercedes me llamó por teléfono y en la conversación me dijo:
+
+—Gabriel no está en Caracas, *ma chérie*... ¿Por qué le devolviste esos libros?... ¡Si te los había mandado de regalo!... Estoy cierta, certísima, porque él mismo me lo dijo... Y dime: ¿tienes mucho interés en que le hable de ese comentario tuyo?...
+
+Yo no sé lo que contesté, ni lo que dije luego, sólo recuerdo que un rato después de haber dejado el teléfono, me sentía agobiada por una extraña pesadumbre, avergonzada de haber escrito comentario ninguno; rotas todas mis esperanzas; humillada, tristísima... Recordé que Mercedes, siempre tan insinuante, hacía dos o tres días ya, que al hablar por teléfono, evadía el nombrar a Gabriel... Aquel silencio suyo me había irritado hasta entonces, pero ahora... ahora... en mi horrible pesimismo me parecía comprender...
+
+Y fue tan intensa la decepción que experimenté luego de hablar a Mercedes, me sentí tan agobiada y tan sola, que caminando al azar sin saber adónde iba, llegué hasta el borde del estanque, me acosté sobre la hierba a la sombra de los sauces llorones, pensé con envidia en el silencio eterno de los cementerios y fingiéndome muerta, inmóvil bajo los sauces, con pañuelos de sombra y de sol sobre los ojos, me lloré un largo rato a mí misma...
